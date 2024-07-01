@@ -25,6 +25,7 @@ Benjamin Singeltary 👻
 Guru Updesh Singh :p
 Steven Cai
 Lauren Scacco ✿
+Nicole Bogart
 Yat Tung Ho (•⚗৺⚗•)
 Kerry James Poulson
 Juan Pablo Duque Ochoa :D
