@@ -295,6 +295,7 @@ Astrid Bowden 🍓
 Annalee X. Johnson 🌚
 Po-Hui Lin
 Jason Szeto 🔥
+Krista Koeplin
 Joshua Wallace 🐄
 Michael Rigali ★ ☆ ★ ☆ ★
 Navneet Dhir 
