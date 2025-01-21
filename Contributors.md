@@ -11,7 +11,7 @@ Hanjun Kim (ʕo.o?)
 Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
-Tallent Hagan (•_•) ( •_•)>⌐■-■ (⌐■_■)
+Tallent Hagan (•*•) ( •_•)>⌐■-■ (⌐■_■)
 Joshua Kim
 Christopher Pavlovich :D
 Derek Westjohn 🎸
@@ -20,7 +20,7 @@ Duncan Roepke 🗿
 Jacob Springer :)
 Karan Patel :0
 Aniket Poojari ʕ•|•ʔ
-Steven Wallace ¯\_(ツ)*/¯
+Steven Wallace ¯\_(ツ)_/¯
 Daniel Grossberg 🦕
 Steven Schaerer ><>
 Shunan Zhu
@@ -49,6 +49,7 @@ Gabriel Mortensen
 Luiz De Miranda Leao
 Milton Huynh 😎
 Christopher Buss
+Nicholas Nelson ¯\_(ツ)_/¯
 Lindsay Schwartz :P
 Michelino Gali
 Andrew Cearlock
@@ -284,7 +285,7 @@ Zachary Hogan
 Vaughn Blandy
 Lucas Stephens
 Andrew Ketola
-Cody Ray   ><(((º>
+Cody Ray ><(((º>
 Brandon Cowan [>^.^]>#
 Joshua Kim XD
 Byron Hedden
@@ -297,4 +298,4 @@ Po-Hui Lin
 Jason Szeto 🔥
 Joshua Wallace 🐄
 Michael Rigali ★ ☆ ★ ☆ ★
-Navneet Dhir 
+Navneet Dhir
