@@ -1,3 +1,4 @@
+Nathan Bernstein
 Melody Acevedo
 Sirus Salari 🏂
 Lena Aljehane 🌏
