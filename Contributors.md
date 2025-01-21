@@ -305,6 +305,7 @@ Ditrung Duong
 Astrid Bowden 🍓
 Annalee X. Johnson 🌚
 Po-Hui Lin
+Matt Simoes
 Jason Szeto 🔥
 Joshua Wallace 🐄
 Adam Andreatta
