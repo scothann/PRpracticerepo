@@ -39,7 +39,6 @@ Liam Pestrella :)
 Jawad Abdullah ( ˘︹˘ )
 Colin Cheng ^*^
 Anthony Javiya 🦧
-Matthew O'Malley-Nichols <*<
 Alex Clark 🪻️
 Matthew O'Malley-Nichols <_<
 Daniel Fontenot ┐(‘～`;)┌
@@ -355,4 +354,5 @@ Tieg Zaharia ヽ༼ ͡☉ ͜ʖ ͡☉ ༽ﾉ
 Casey Heath
 Matthew Tassone
 Navneet Dhir
+Shushanna Petrosyan
 Alexander Ngo ¯\_(ツ)_/¯
