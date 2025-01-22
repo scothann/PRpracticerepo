@@ -354,5 +354,6 @@ Tieg Zaharia ヽ༼ ͡☉ ͜ʖ ͡☉ ༽ﾉ
 Casey Heath
 Matthew Tassone
 Navneet Dhir
+Jaryd Stiller 0_0
 Shushanna Petrosyan
 Alexander Ngo ¯\_(ツ)_/¯
