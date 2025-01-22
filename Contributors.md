@@ -7,6 +7,7 @@ Audrie Nielsen ʕ っ•ᴥ•ʔ っ
 Teresita Nader ^-^
 Devin Fahnestock 🫠
 Dominic Fantauzzo 6*6
+Farris Hossan 🎸♪♫
 Hayden Burgess ⊙▂⊙
 Hannah Wheeler
 Hanjun Kim (ʕo.o?)
