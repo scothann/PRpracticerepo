@@ -17,6 +17,7 @@ Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
 Tallent Hagan (•*•) ( •*•)>⌐■-■ (⌐■_■)
 Joshua Kim
+Caitlin Bax >:O
 Carl Ikai <°)))><
 William O'Brien
 David Kazarian
