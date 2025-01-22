@@ -1,3 +1,4 @@
+Nathan Bernstein 🍽️
 Melody Acevedo
 Sirus Salari 🏂
 Lena Aljehane 🌏
@@ -7,8 +8,10 @@ Audrie Nielsen ʕ っ•ᴥ•ʔ っ
 Teresita Nader ^-^
 Devin Fahnestock 🫠
 Dominic Fantauzzo 6*6
+Farris Hossan 🎸♪♫
 Hayden Burgess ⊙▂⊙
 Hannah Wheeler
+Taylor Beckham 🍀
 Hanjun Kim (ʕo.o?)
 Luc Yang ฅ՞•ﻌ•՞ฅ
 Hann Scott (•̀ᴗ•́)و
@@ -17,6 +20,8 @@ Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
 Tallent Hagan (•*•) ( •_•)>⌐■-■ (⌐■_■)
 Joshua Kim
+Patrick Lim >_<
+Caitlin Bax >:O
 Carl Ikai <°)))><
 William O'Brien
 David Kazarian
@@ -24,11 +29,12 @@ Christopher Pavlovich :D
 Derek Westjohn 🎸
 Joe Storto 🍕
 Duncan Roepke 🗿
+Avneet Sandhu
 Jacob Springer :)
 Karan Patel :0
 Aniket Poojari ʕ•|•ʔ
 Steven Wallace ¯\_(ツ)_/¯
-Daniel Grossberg ??
+Daniel Grossberg 🦕
 Steven Schaerer ><>
 Shunan Zhu
 Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°º¤ø,¸
@@ -36,9 +42,8 @@ Liam Pestrella :)
 Jawad Abdullah ( ˘︹˘ )
 Colin Cheng ^_^
 Anthony Javiya 🦧
-Matthew O'Malley-Nichols <_<
 Alex Clark 🪻️
-Matthew O'Malley-Nichols <*<
+Matthew O'Malley-Nichols <_<
 Daniel Fontenot ┐(‘～`;)┌
 Ethan David Lee 🦫
 Lydia Fares :D
@@ -60,6 +65,7 @@ Gabriel Mortensen
 Luiz De Miranda Leao
 Milton Huynh 😎
 Christopher Buss
+Nicholas Nelson ¯\_(ツ)_/¯
 Lindsay Schwartz :P
 Michelino Gali
 Andrew Cearlock
@@ -145,7 +151,8 @@ Robert Jacobson
 Efe Torunoglu :D
 Michael Ahn -_-'
 Robert Brumleve :P
-Amine Kaddour -\_\_-
+Amine Kaddour -__-
+Aiden Freeman
 Ngoc-Thao Ly :1
 Daniel Dalinda XD
 Hisami Scott :)
@@ -177,6 +184,7 @@ Jakob Poore 👒🍖🏴‍☠
 Walt Bringenberg :)
 Jaron Moore 😎
 Jose Meza
+Ashton Powell
 Jomar Malpica
 Annika Ewers :-)
 Michael Lagardera ✊🦾
@@ -207,6 +215,7 @@ Arturo Martinez \m/ >*< \m/
 Jackson Van Dyke 🍞
 John Tran 🐈‍⬛
 Brittany Healey (≧◡≦)
+Steven Kim <('-'<)
 Alejandro Hernandez
 James Bray 🤗
 Christopher Blum 🌮 🌮
@@ -221,6 +230,7 @@ Logan Knipple :D
 Gemini Kaushik <3
 Elliot Foley XDD
 Jeremiah Hicks
+Sidney Norton (┛◉Д◉)┛彡┻━┻
 Aditya Chandran ' v '
 Quyen Nguyen OwO
 Cheyenne Plutchak ^\_\_^
@@ -253,6 +263,7 @@ Blake Hua 🐐
 Alex Higham ((̲̅ ̲̅(̲̅C̲̅r̲̅a̲̅y̲̅o̲̅n̲̅( ̲̅((>
 Hannah Barfield ʕ̡̢̡ʘ̅͟͜͡ʘ̲̅ʔ̢̡̢
 Bogdan Gevko (===||:::::::::::::::>
+Larisa Xie
 Michael Lin
 Alec Moschetti ╰( ͡° ͜ʖ ͡° )つ ──☆\*:・ﾟ
 John Paul Feliciano
@@ -294,6 +305,7 @@ Josh Pulattie
 Hannah Kim˚.🎀༘⋆
 Ibrahim Velasquez 🏂❄️
 Brandi Cook :3
+Vi Provost :3
 Laci Monsrud ♡
 Shubhank Gyawali (:
 Jessica Vasilenko (●´⌓`●)
@@ -320,6 +332,9 @@ Ditrung Duong
 Astrid Bowden 🍓
 AnnaleeX. Johnson 🌚
 Po-Hui Lin
+Skylar Soon 🧌
+Matt Simoes
+Zakia Mozer XD
 Kristan Koeplin
 Jason Szeto 🔥
 Joshua Wallace 🐄
@@ -328,8 +343,15 @@ Nicole McCune =^..^=
 Michael Rigali ★ ☆ ★ ☆ ★
 Thomas Tran ψ(｀ ∇´)ψ
 Sophia Bouck :3
-Navneet Dhir
-Kevin Leung ΞΞΞΞΞ と ο ﾆﾆ ο ユ ΞΞΞΞΞ
+Navneet Dhir 
+Ashley Doerfler 🙈🤠
+Teo Ippolito ٩(̾●̮̮̃̾•̃̾)۶
+Sean Gibson 🗣🔥
+Skylar Eade
+Jose Cervantes ._.
+Samuel Levy ♪(๑ᴖ◡ᴖ๑)♪
+Alexa Herrera 👻
+Kevin Leung ΞΞΞΞΞとοﾆﾆοユΞΞΞΞΞ
 Connor Oliver
 Brandon Plumbo 👽
 Jose Navarro 🥶
@@ -338,5 +360,17 @@ Ethan Wentworth 🫡
 Matthew Dyer (b^_^)b
 Tieg Zaharia ヽ༼ ͡☉ ͜ʖ ͡☉ ༽ﾉ
 Casey Heath
+Michael Hwang (╯°□°)╯︵ ┻━┻
 Matthew Tassone
 Navneet Dhir
+Kayla Sharp
+Preet Patel
+Eric Biersner
+Daniel Reti 
+Nicholas Wooldridge 
+George Doujaiji O_O
+Anthony Prudent ѧѦ ѧ  ︵͡︵  ̢ ̱ ̧̱ι̵̱̊ι̶̨̱ ̶̱   ︵ Ѧѧ  ︵͡ ︵   ѧ Ѧ    ̵̗̊o̵̖  ︵  ѦѦ ѧ 
+Greggory Hickman 𝗖𝗘𝗢 𝗢𝗙 𝗢𝗛𝗜𝗢
+Jaryd Stiller 0_0
+Shushanna Petrosyan
+Alexander Ngo ¯\_(ツ)_/¯
