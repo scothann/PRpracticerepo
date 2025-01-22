@@ -330,6 +330,7 @@ Michael Rigali ★ ☆ ★ ☆ ★
 Thomas Tran ψ(｀∇´)ψ
 Sophia Bouck :3
 Navneet Dhir 
+Samuel Levy ♪(๑ᴖ◡ᴖ๑)♪
 Alexa Herrera 👻
 Kevin Leung ΞΞΞΞΞとοﾆﾆοユΞΞΞΞΞ
 Connor Oliver
