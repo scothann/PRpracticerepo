@@ -40,7 +40,7 @@ Shunan Zhu
 Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°º¤ø,¸
 Liam Pestrella :)
 Jawad Abdullah ( ˘︹˘ )
-Colin Cheng ^*^
+Colin Cheng ^_^
 Anthony Javiya 🦧
 Alex Clark 🪻️
 Matthew O'Malley-Nichols <_<
@@ -53,11 +53,11 @@ Jonathan Toussaint ;-)
 David Krigbaum
 Julie Thurmes :P
 Karnbir Randhawa
-Jamie Parker ಠ_ಠ
-Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
+Jamie Parker ಠ*ಠ
+Bryan Caples ᕕ(⌐■*■)ᕗ ♪♬
 Thuy Duyen Doan 🤠
 Nish Sitapara :D
-Andrew Bottom (-_-)
+Andrew Bottom (-*-)
 Monica Zhang
 Lindsay Bestvater
 Jared Norris 🤠
@@ -104,7 +104,7 @@ Naveen Sewani
 Kerry James Poulson
 Wyatt Arnsdorf \_(ಠ*ಠ)_/
 Lorraine Byrne
-Andrew Lawson 0_0
+Andrew Lawson 0*0
 Juan Pablo Duque Ochoa :D
 Kyle Pfiuster 😊
 Robin Yi :)
@@ -144,7 +144,7 @@ Elizabeth Bremner XD
 Noddy Ho Ching Lam
 Jonah Gates <(^-^)>
 Christina Boyce :)
-Grant Towers @(^_^)@
+Grant Towers @(^*^)@
 Amadou Diallo
 Megan Dorn 🐌
 Robert Jacobson
@@ -175,7 +175,7 @@ Aubrey Floyd 🤷🏻‍♀️
 Kavya Kolavasi ❤️
 Joonhyung Kang
 Hana Alizai 😊
-Brandon Nelson 	(ﾉ◕ヮ◕)ﾉ*:・ﾟ✧
+Brandon Nelson (ﾉ ◕ ヮ ◕)ﾉ\*:・ﾟ ✧
 Tyler Harwood 👀
 Atlee Hlainka 🌎
 Lauren Campbell :D
@@ -265,7 +265,7 @@ Hannah Barfield ʕ̡̢̡ʘ̅͟͜͡ʘ̲̅ʔ̢̡̢
 Bogdan Gevko (===||:::::::::::::::>
 Larisa Xie
 Michael Lin
-Alec Moschetti ╰( ͡° ͜ʖ ͡° )つ──☆*:・ﾟ
+Alec Moschetti ╰( ͡° ͜ʖ ͡° )つ ──☆\*:・ﾟ
 John Paul Feliciano
 Brant Cass 🦖
 Emmet Miller
@@ -341,7 +341,7 @@ Joshua Wallace 🐄
 Adam Andreatta
 Nicole McCune =^..^=
 Michael Rigali ★ ☆ ★ ☆ ★
-Thomas Tran ψ(｀∇´)ψ
+Thomas Tran ψ(｀ ∇´)ψ
 Sophia Bouck :3
 Navneet Dhir 
 Ashley Doerfler 🙈🤠
@@ -354,6 +354,7 @@ Alexa Herrera 👻
 Kevin Leung ΞΞΞΞΞとοﾆﾆοユΞΞΞΞΞ
 Connor Oliver
 Brandon Plumbo 👽
+Jose Navarro 🥶
 Andrew Dang ✈️
 Ethan Wentworth 🫡
 Matthew Dyer (b^_^)b
