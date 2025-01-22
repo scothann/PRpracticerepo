@@ -263,6 +263,7 @@ Blake Hua 🐐
 Alex Higham ((̲̅ ̲̅(̲̅C̲̅r̲̅a̲̅y̲̅o̲̅n̲̅( ̲̅((>
 Hannah Barfield ʕ̡̢̡ʘ̅͟͜͡ʘ̲̅ʔ̢̡̢
 Bogdan Gevko (===||:::::::::::::::>
+Larisa Xie
 Michael Lin
 Alec Moschetti ╰( ͡° ͜ʖ ͡° )つ──☆*:・ﾟ
 John Paul Feliciano
