@@ -176,6 +176,7 @@ Jesse Chang 👀
 Jakob Poore 👒🍖🏴‍☠
 Walt Bringenberg :)
 Jaron Moore 😎
+Bri Foreman
 Jose Meza
 Jomar Malpica
 Annika Ewers :-)
