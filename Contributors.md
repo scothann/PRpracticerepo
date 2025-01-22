@@ -328,7 +328,7 @@ Nicole McCune =^..^=
 Michael Rigali ★ ☆ ★ ☆ ★
 Thomas Tran ψ(｀∇´)ψ
 Sophia Bouck :3
-Navneet Dhir 
+Navneet Dhir
 Kevin Leung ΞΞΞΞΞとοﾆﾆοユΞΞΞΞΞ
 Connor Oliver
 Brandon Plumbo 👽
@@ -339,3 +339,4 @@ Tieg Zaharia ヽ༼ ͡☉ ͜ʖ ͡☉ ༽ﾉ
 Casey Heath
 Matthew Tassone
 Navneet Dhir
+Nicolas Fong _(:3」∠)_
