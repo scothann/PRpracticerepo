@@ -15,7 +15,7 @@ Hann Scott (•̀ᴗ•́)و
 Timmy Le ✩
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
-Tallent Hagan (•*•) ( •*•)>⌐■-■ (⌐■_■)
+Tallent Hagan (•*•) ( •_•)>⌐■-■ (⌐■_■)
 Joshua Kim
 Carl Ikai <°)))><
 William O'Brien
@@ -27,18 +27,18 @@ Duncan Roepke 🗿
 Jacob Springer :)
 Karan Patel :0
 Aniket Poojari ʕ•|•ʔ
-Steven Wallace ¯\_(ツ)*/¯
+Steven Wallace ¯\_(ツ)_/¯
 Daniel Grossberg ??
 Steven Schaerer ><>
 Shunan Zhu
 Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°º¤ø,¸
 Liam Pestrella :)
 Jawad Abdullah ( ˘︹˘ )
-Colin Cheng ^*^
+Colin Cheng ^_^
 Anthony Javiya 🦧
-Matthew O'Malley-Nichols <*<
-Alex Clark 🪻️
 Matthew O'Malley-Nichols <_<
+Alex Clark 🪻️
+Matthew O'Malley-Nichols <*<
 Daniel Fontenot ┐(‘～`;)┌
 Ethan David Lee 🦫
 Lydia Fares :D
@@ -48,11 +48,11 @@ Jonathan Toussaint ;-)
 David Krigbaum
 Julie Thurmes :P
 Karnbir Randhawa
-Jamie Parker ಠ_ಠ
-Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
+Jamie Parker ಠ*ಠ
+Bryan Caples ᕕ(⌐■*■)ᕗ ♪♬
 Thuy Duyen Doan 🤠
 Nish Sitapara :D
-Andrew Bottom (-_-)
+Andrew Bottom (-*-)
 Monica Zhang
 Lindsay Bestvater
 Jared Norris 🤠
@@ -98,7 +98,7 @@ Naveen Sewani
 Kerry James Poulson
 Wyatt Arnsdorf \_(ಠ*ಠ)_/
 Lorraine Byrne
-Andrew Lawson 0_0
+Andrew Lawson 0*0
 Juan Pablo Duque Ochoa :D
 Kyle Pfiuster 😊
 Robin Yi :)
@@ -138,14 +138,14 @@ Elizabeth Bremner XD
 Noddy Ho Ching Lam
 Jonah Gates <(^-^)>
 Christina Boyce :)
-Grant Towers @(^_^)@
+Grant Towers @(^*^)@
 Amadou Diallo
 Megan Dorn 🐌
 Robert Jacobson
 Efe Torunoglu :D
 Michael Ahn -_-'
 Robert Brumleve :P
-Amine Kaddour -__-
+Amine Kaddour -\_\_-
 Ngoc-Thao Ly :1
 Daniel Dalinda XD
 Hisami Scott :)
@@ -168,7 +168,7 @@ Aubrey Floyd 🤷🏻‍♀️
 Kavya Kolavasi ❤️
 Joonhyung Kang
 Hana Alizai 😊
-Brandon Nelson 	(ﾉ◕ヮ◕)ﾉ*:・ﾟ✧
+Brandon Nelson (ﾉ ◕ ヮ ◕)ﾉ\*:・ﾟ ✧
 Tyler Harwood 👀
 Atlee Hlainka 🌎
 Lauren Campbell :D
@@ -254,7 +254,7 @@ Alex Higham ((̲̅ ̲̅(̲̅C̲̅r̲̅a̲̅y̲̅o̲̅n̲̅( ̲̅((>
 Hannah Barfield ʕ̡̢̡ʘ̅͟͜͡ʘ̲̅ʔ̢̡̢
 Bogdan Gevko (===||:::::::::::::::>
 Michael Lin
-Alec Moschetti ╰( ͡° ͜ʖ ͡° )つ──☆*:・ﾟ
+Alec Moschetti ╰( ͡° ͜ʖ ͡° )つ ──☆\*:・ﾟ
 John Paul Feliciano
 Brant Cass 🦖
 Emmet Miller
@@ -326,12 +326,13 @@ Joshua Wallace 🐄
 Adam Andreatta
 Nicole McCune =^..^=
 Michael Rigali ★ ☆ ★ ☆ ★
-Thomas Tran ψ(｀∇´)ψ
+Thomas Tran ψ(｀ ∇´)ψ
 Sophia Bouck :3
-Navneet Dhir 
-Kevin Leung ΞΞΞΞΞとοﾆﾆοユΞΞΞΞΞ
+Navneet Dhir
+Kevin Leung ΞΞΞΞΞ と ο ﾆﾆ ο ユ ΞΞΞΞΞ
 Connor Oliver
 Brandon Plumbo 👽
+Jose Navarro 🥶
 Andrew Dang ✈️
 Ethan Wentworth 🫡
 Matthew Dyer (b^_^)b
