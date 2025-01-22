@@ -207,6 +207,7 @@ Arturo Martinez \m/ >*< \m/
 Jackson Van Dyke 🍞
 John Tran 🐈‍⬛
 Brittany Healey (≧◡≦)
+Steven Kim <('-'<)
 Alejandro Hernandez
 James Bray 🤗
 Christopher Blum 🌮 🌮
