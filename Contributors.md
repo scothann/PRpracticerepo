@@ -9,6 +9,7 @@ Devin Fahnestock 🫠
 Dominic Fantauzzo 6*6
 Hayden Burgess ⊙▂⊙
 Hannah Wheeler
+Taylor Beckham 🍀
 Hanjun Kim (ʕo.o?)
 Luc Yang ฅ՞•ﻌ•՞ฅ
 Hann Scott (•̀ᴗ•́)و
