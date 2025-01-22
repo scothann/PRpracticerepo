@@ -24,6 +24,7 @@ Christopher Pavlovich :D
 Derek Westjohn 🎸
 Joe Storto 🍕
 Duncan Roepke 🗿
+Avneet Sandhu
 Jacob Springer :)
 Karan Patel :0
 Aniket Poojari ʕ•|•ʔ
