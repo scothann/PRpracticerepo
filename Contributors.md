@@ -11,6 +11,7 @@ Dominic Fantauzzo 6*6
 Farris Hossan 🎸♪♫
 Hayden Burgess ⊙▂⊙
 Hannah Wheeler
+Taylor Beckham 🍀
 Hanjun Kim (ʕo.o?)
 Luc Yang ฅ՞•ﻌ•՞ฅ
 Hann Scott (•̀ᴗ•́)و
