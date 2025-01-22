@@ -15,7 +15,7 @@ Hann Scott (•̀ᴗ•́)و
 Timmy Le ✩
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
-Tallent Hagan (•*•) ( •*•)>⌐■-■ (⌐■_■)
+Tallent Hagan (•*•) ( •_•)>⌐■-■ (⌐■_■)
 Joshua Kim
 Caitlin Bax >:O
 Carl Ikai <°)))><
@@ -28,8 +28,8 @@ Duncan Roepke 🗿
 Jacob Springer :)
 Karan Patel :0
 Aniket Poojari ʕ•|•ʔ
-Steven Wallace ¯\_(ツ)*/¯
-Daniel Grossberg ??
+Steven Wallace ¯\_(ツ)_/¯
+Daniel Grossberg 🦕
 Steven Schaerer ><>
 Shunan Zhu
 Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°º¤ø,¸
@@ -61,6 +61,7 @@ Gabriel Mortensen
 Luiz De Miranda Leao
 Milton Huynh 😎
 Christopher Buss
+Nicholas Nelson ¯\_(ツ)_/¯
 Lindsay Schwartz :P
 Michelino Gali
 Andrew Cearlock
