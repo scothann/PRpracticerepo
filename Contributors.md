@@ -221,6 +221,7 @@ Logan Knipple :D
 Gemini Kaushik <3
 Elliot Foley XDD
 Jeremiah Hicks
+Sidney Norton (┛◉Д◉)┛彡┻━┻
 Aditya Chandran ' v '
 Quyen Nguyen OwO
 Cheyenne Plutchak ^\_\_^
