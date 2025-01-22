@@ -11,6 +11,7 @@ Hayden Burgess ⊙▂⊙
 Hannah Wheeler
 Hanjun Kim (ʕo.o?)
 Luc Yang ฅ՞•ﻌ•՞ฅ
+Cassandra Hedrick
 Hann Scott (•̀ᴗ•́)و
 Timmy Le ✩
 Janita Aamir ʕ •ᴥ•ʔ
