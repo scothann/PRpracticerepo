@@ -338,4 +338,5 @@ Matthew Dyer (b^_^)b
 Tieg Zaharia ヽ༼ ͡☉ ͜ʖ ͡☉ ༽ﾉ
 Casey Heath
 Matthew Tassone
+Nick Daters
 Navneet Dhir
