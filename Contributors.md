@@ -234,6 +234,7 @@ Jeremiah Hicks
 Sidney Norton (┛◉Д◉)┛彡┻━┻
 Aditya Chandran ' v '
 Quyen Nguyen OwO
+Arthur Tripp ( •_•) ( •_•)>⌐■-■ (⌐■_■)
 Cheyenne Plutchak ^\_\_^
 Allyson Villaflor ˚₊‧꒰ა 🎀 ໒꒱ ‧₊˚
 Haedon Kaufman 🍕
