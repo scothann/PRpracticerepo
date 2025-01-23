@@ -56,6 +56,8 @@ Jonathan Toussaint ;-)
 David Krigbaum
 Julie Thurmes :P
 Karnbir Randhawa
+Jamie Parker ಠ_ಠ
+Isabelle Resil 🧍‍♂️
 Jamie Parker ಠ*ಠ
 Bryan Caples ᕕ(⌐■*■)ᕗ ♪♬
 Thuy Duyen Doan 🤠
