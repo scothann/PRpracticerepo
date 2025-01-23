@@ -375,6 +375,7 @@ Matthew Tassone
 Yuyi Zhou😄👩🐹
 Nick Daters
 Navneet Dhir
+Gizem Kavas ＼(⌒▽⌒)
 Carlos Jauregui
 Honggwan Shin
 Kayla Sharp
