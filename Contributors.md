@@ -184,6 +184,7 @@ Jesse Chang 👀
 Jakob Poore 👒🍖🏴‍☠
 Walt Bringenberg :)
 Jaron Moore 😎
+Bri Foreman
 Jose Meza
 Ashton Powell
 Jomar Malpica
