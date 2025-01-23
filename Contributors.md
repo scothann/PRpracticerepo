@@ -1,4 +1,6 @@
+Nathan Bernstein 🍽️
 Melody Acevedo
+Anthony Abruzzini {:(|}
 Sirus Salari 🏂
 Lena Aljehane 🌏
 Dylan Majewski 🧿
@@ -7,41 +9,48 @@ Audrie Nielsen ʕ っ•ᴥ•ʔ っ
 Teresita Nader ^-^
 Devin Fahnestock 🫠
 Dominic Fantauzzo 6*6
+Farris Hossan 🎸♪♫
 Hayden Burgess ⊙▂⊙
 Hannah Wheeler
+Taylor Beckham 🍀
 Hanjun Kim (ʕo.o?)
 Luc Yang ฅ՞•ﻌ•՞ฅ
+Cassandra Hedrick
 Hann Scott (•̀ᴗ•́)و
 Timmy Le ✩
 Janita Aamir ʕ •ᴥ•ʔ
 Tatiana Cherne 🦋
-Tallent Hagan (•*•) ( •*•)>⌐■-■ (⌐■_■)
+Tallent Hagan (•*•) ( •_•)>⌐■-■ (⌐■_■)
 Joshua Kim
+Patrick Lim >_<
+Caitlin Bax >:O
 Carl Ikai <°)))><
 William O'Brien
 David Kazarian
 Christopher Pavlovich :D
 Derek Westjohn 🎸
 Joe Storto 🍕
+Gabriele Falchini  🇮🇹
 Duncan Roepke 🗿
+Avneet Sandhu
 Jacob Springer :)
 Karan Patel :0
 Aniket Poojari ʕ•|•ʔ
-Steven Wallace ¯\_(ツ)*/¯
-Daniel Grossberg ??
+Steven Wallace ¯\_(ツ)_/¯
+Daniel Grossberg 🦕
 Steven Schaerer ><>
 Shunan Zhu
 Trevor Phillips °º¤ø,¸¸,ø¤º°`°º¤ø,¸,ø¤°º¤ø,¸¸,ø¤º°`°º¤ø,¸
 Liam Pestrella :)
 Jawad Abdullah ( ˘︹˘ )
-Colin Cheng ^*^
+Colin Cheng ^_^
 Anthony Javiya 🦧
-Matthew O'Malley-Nichols <*<
 Alex Clark 🪻️
 Matthew O'Malley-Nichols <_<
 Daniel Fontenot ┐(‘～`;)┌
 Ethan David Lee 🦫
 Lydia Fares :D
+Jane Lynn 🫨
 Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
 Jonathan Toussaint ;-)
@@ -49,10 +58,12 @@ David Krigbaum
 Julie Thurmes :P
 Karnbir Randhawa
 Jamie Parker ಠ_ಠ
-Bryan Caples ᕕ(⌐■_■)ᕗ ♪♬
+Isabelle Resil 🧍‍♂️
+Jamie Parker ಠ*ಠ
+Bryan Caples ᕕ(⌐■*■)ᕗ ♪♬
 Thuy Duyen Doan 🤠
 Nish Sitapara :D
-Andrew Bottom (-_-)
+Andrew Bottom (-*-)
 Monica Zhang
 Lindsay Bestvater
 Jared Norris 🤠
@@ -60,6 +71,7 @@ Gabriel Mortensen
 Luiz De Miranda Leao
 Milton Huynh 😎
 Christopher Buss
+Nicholas Nelson ¯\_(ツ)_/¯
 Lindsay Schwartz :P
 Michelino Gali
 Andrew Cearlock
@@ -98,7 +110,7 @@ Naveen Sewani
 Kerry James Poulson
 Wyatt Arnsdorf \_(ಠ*ಠ)_/
 Lorraine Byrne
-Andrew Lawson 0_0
+Andrew Lawson 0*0
 Juan Pablo Duque Ochoa :D
 Kyle Pfiuster 😊
 Robin Yi :)
@@ -135,10 +147,11 @@ Ian Flynn 👻
 Preston Sellers <(-.-)>
 Damiant Chauhan :)
 Elizabeth Bremner XD
+Vanessa Dowd :) 
 Noddy Ho Ching Lam
 Jonah Gates <(^-^)>
 Christina Boyce :)
-Grant Towers @(^_^)@
+Grant Towers @(^*^)@
 Amadou Diallo
 Megan Dorn 🐌
 Robert Jacobson
@@ -146,6 +159,7 @@ Efe Torunoglu :D
 Michael Ahn -_-'
 Robert Brumleve :P
 Amine Kaddour -__-
+Aiden Freeman
 Ngoc-Thao Ly :1
 Daniel Dalinda XD
 Hisami Scott :)
@@ -168,7 +182,7 @@ Aubrey Floyd 🤷🏻‍♀️
 Kavya Kolavasi ❤️
 Joonhyung Kang
 Hana Alizai 😊
-Brandon Nelson 	(ﾉ◕ヮ◕)ﾉ*:・ﾟ✧
+Brandon Nelson (ﾉ ◕ ヮ ◕)ﾉ\*:・ﾟ ✧
 Tyler Harwood 👀
 Atlee Hlainka 🌎
 Lauren Campbell :D
@@ -176,7 +190,9 @@ Jesse Chang 👀
 Jakob Poore 👒🍖🏴‍☠
 Walt Bringenberg :)
 Jaron Moore 😎
+Bri Foreman
 Jose Meza
+Ashton Powell
 Jomar Malpica
 Annika Ewers :-)
 Michael Lagardera ✊🦾
@@ -207,6 +223,7 @@ Arturo Martinez \m/ >*< \m/
 Jackson Van Dyke 🍞
 John Tran 🐈‍⬛
 Brittany Healey (≧◡≦)
+Steven Kim <('-'<)
 Alejandro Hernandez
 James Bray 🤗
 Christopher Blum 🌮 🌮
@@ -221,8 +238,10 @@ Logan Knipple :D
 Gemini Kaushik <3
 Elliot Foley XDD
 Jeremiah Hicks
+Sidney Norton (┛◉Д◉)┛彡┻━┻
 Aditya Chandran ' v '
 Quyen Nguyen OwO
+Arthur Tripp ( •_•) ( •_•)>⌐■-■ (⌐■_■)
 Cheyenne Plutchak ^\_\_^
 Allyson Villaflor ˚₊‧꒰ა 🎀 ໒꒱ ‧₊˚
 Haedon Kaufman 🍕
@@ -253,8 +272,9 @@ Blake Hua 🐐
 Alex Higham ((̲̅ ̲̅(̲̅C̲̅r̲̅a̲̅y̲̅o̲̅n̲̅( ̲̅((>
 Hannah Barfield ʕ̡̢̡ʘ̅͟͜͡ʘ̲̅ʔ̢̡̢
 Bogdan Gevko (===||:::::::::::::::>
+Larisa Xie
 Michael Lin
-Alec Moschetti ╰( ͡° ͜ʖ ͡° )つ──☆*:・ﾟ
+Alec Moschetti ╰( ͡° ͜ʖ ͡° )つ ──☆\*:・ﾟ
 John Paul Feliciano
 Brant Cass 🦖
 Emmet Miller
@@ -294,6 +314,7 @@ Josh Pulattie
 Hannah Kim˚.🎀༘⋆
 Ibrahim Velasquez 🏂❄️
 Brandi Cook :3
+Vi Provost :3
 Laci Monsrud ♡
 Shubhank Gyawali (:
 Jessica Vasilenko (●´⌓`●)
@@ -309,6 +330,7 @@ Nicholas Pettus 🤙
 Zachary Hogan
 Vaughn Blandy
 Lucas Stephens
+Paul Vo
 Andrew Ketola
 Cody Ray ><(((º>
 Brandon Cowan [>^.^]>#
@@ -320,23 +342,50 @@ Ditrung Duong
 Astrid Bowden 🍓
 AnnaleeX. Johnson 🌚
 Po-Hui Lin
+Skylar Soon 🧌
+Matt Simoes
+Zakia Mozer XD
 Kristan Koeplin
 Jason Szeto 🔥
 Joshua Wallace 🐄
 Adam Andreatta
 Nicole McCune =^..^=
 Michael Rigali ★ ☆ ★ ☆ ★
-Thomas Tran ψ(｀∇´)ψ
+Thomas Tran ψ(｀ ∇´)ψ
 Sophia Bouck :3
 Navneet Dhir 
+Ashley Doerfler 🙈🤠
+Teo Ippolito ٩(̾●̮̮̃̾•̃̾)۶
+Sean Gibson 🗣🔥
+Skylar Eade
+Jose Cervantes ._.
+Samuel Levy ♪(๑ᴖ◡ᴖ๑)♪
+Alexa Herrera 👻
 Kevin Leung ΞΞΞΞΞとοﾆﾆοユΞΞΞΞΞ
 Connor Oliver
 Brandon Plumbo 👽
+Jose Navarro 🥶
 Andrew Dang ✈️
 Ethan Wentworth 🫡
 Matthew Dyer (b^_^)b
 Tieg Zaharia ヽ༼ ͡☉ ͜ʖ ͡☉ ༽ﾉ
 Casey Heath
+Michael Hwang (╯°□°)╯︵ ┻━┻
 Matthew Tassone
+Yuyi Zhou😄👩🐹
+Nick Daters
 Navneet Dhir
 Gizem Kavas ＼(⌒▽⌒)
+Carlos Jauregui
+Honggwan Shin
+Kayla Sharp
+Preet Patel
+Eric Biersner
+Daniel Reti 
+Nicholas Wooldridge 
+George Doujaiji O_O
+Anthony Prudent ѧѦ ѧ  ︵͡︵  ̢ ̱ ̧̱ι̵̱̊ι̶̨̱ ̶̱   ︵ Ѧѧ  ︵͡ ︵   ѧ Ѧ    ̵̗̊o̵̖  ︵  ѦѦ ѧ 
+Greggory Hickman 𝗖𝗘𝗢 𝗢𝗙 𝗢𝗛𝗜𝗢
+Jaryd Stiller 0_0
+Shushanna Petrosyan
+Alexander Ngo ¯\_(ツ)_/¯
