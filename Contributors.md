@@ -364,6 +364,7 @@ Tieg Zaharia ヽ༼ ͡☉ ͜ʖ ͡☉ ༽ﾉ
 Casey Heath
 Michael Hwang (╯°□°)╯︵ ┻━┻
 Matthew Tassone
+Nick Daters
 Navneet Dhir
 Carlos Jauregui
 Honggwan Shin
