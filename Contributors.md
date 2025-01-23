@@ -10,6 +10,7 @@ Veronika Kiss 🐈
 Audrie Nielsen ʕ っ•ᴥ•ʔ っ
 Teresita Nader ^-^
 Devin Fahnestock 🫠
+Yahir Gonzalez 🚀
 Dominic Fantauzzo 6*6
 Farris Hossan 🎸♪♫
 Hayden Burgess ⊙▂⊙
