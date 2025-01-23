@@ -29,6 +29,7 @@ David Kazarian
 Christopher Pavlovich :D
 Derek Westjohn 🎸
 Joe Storto 🍕
+Gabriele Falchini  🇮🇹
 Duncan Roepke 🗿
 Avneet Sandhu
 Jacob Springer :)
@@ -366,7 +367,6 @@ Tieg Zaharia ヽ༼ ͡☉ ͜ʖ ͡☉ ༽ﾉ
 Casey Heath
 Michael Hwang (╯°□°)╯︵ ┻━┻
 Matthew Tassone
-Navneet Dhir
 Yuyi Zhou😄👩🐹
 Nick Daters
 Navneet Dhir
