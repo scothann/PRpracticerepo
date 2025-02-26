@@ -4,6 +4,7 @@ Nathan Bernstein 🍽️
 Melody Acevedo
 Anthony Abruzzini {:(|}
 Sirus Salari 🏂
+Zoha Akbarzadeh
 Lena Aljehane 🌏
 Dylan Majewski 🧿
 Veronika Kiss 🐈
