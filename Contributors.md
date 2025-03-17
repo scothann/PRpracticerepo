@@ -55,7 +55,7 @@ Matthew O'Malley-Nichols <_<
 Daniel Fontenot ┐(‘～`;)┌
 Ethan David Lee 🦫
 Lydia Fares :D
-Jane Lynn 🫨
+Gil Glaube =D
 Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
 Jonathan Toussaint ;-)
