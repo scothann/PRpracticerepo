@@ -2,5 +2,5 @@ Hann Scott (•̀ᴗ•́)و
 Janita Aamir ʕ •ᴥ•ʔ
 Jacob Hopkins :)
 Maddi Spawn :)
-Nobuhara Shinji(^_^)
+Shinji Nobuhara (^_^)
 Eric Huang 😎
