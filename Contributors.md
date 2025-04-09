@@ -10,3 +10,4 @@ Shinji Nobuhara (^_^)
 Connor Wallace :D
 Gwen Clayton ★
 Monica Cao :D
+Lucinda Camacho ❤️
