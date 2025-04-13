@@ -6,9 +6,16 @@ Jacob Hopkins :)
 Maddi Spawn :)
 Quinn Downey =^_^=
 Eric Huang 😎
+Cameron Rice ‼️
 Shinji Nobuhara (^_^)
 Connor Wallace :D
 Gwen Clayton ★
 Monica Cao :D
+Gordon Grey :]
 Lucinda Camacho ❤️
 Noshin Raisa ✨
+Byron Ojua-Nice 🚀
+Harpreet Sahota 🐕
+Tran Cong Son Nguyen 	ʕノ•ᴥ•ʔノ ︵ ┻━┻
+Autumn  Arcand (=^ ◡ ^=)
+
