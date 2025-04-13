@@ -15,5 +15,6 @@ Gordon Grey :]
 Lucinda Camacho ❤️
 Byron Ojua-Nice 🚀
 Harpreet Sahota 🐕
+Seongyeong Ju ٩( ᐛ )و
 Tran Cong Son Nguyen 	ʕノ•ᴥ•ʔノ ︵ ┻━┻
 Autumn  Arcand (=^ ◡ ^=)
