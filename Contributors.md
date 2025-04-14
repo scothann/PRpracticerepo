@@ -18,3 +18,6 @@ Harpreet Sahota 🐕
 Tran Cong Son Nguyen 	ʕノ•ᴥ•ʔノ ︵ ┻━┻
 Autumn  Arcand (=^ ◡ ^=)
 Kjirsten Fastabend o(^-^)o
+Ross Wilson   `(O.o)`
+Grace Mtawali :)
+Anna Patterson 🦀
