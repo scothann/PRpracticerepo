@@ -9,6 +9,7 @@ Eric Huang 😎
 Ricardo Diaz :)
 Cameron Rice ‼️
 Shinji Nobuhara (^_^)
+Theodore Ngo :l
 Connor Wallace :D
 Gwen Clayton ★
 Monica Cao :D
