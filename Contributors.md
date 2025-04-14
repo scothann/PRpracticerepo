@@ -14,6 +14,7 @@ Gwen Clayton ★
 Monica Cao :D
 Gordon Grey :]
 Lucinda Camacho ❤️
+Chris Ho
 Noshin Raisa ✨
 Byron Ojua-Nice 🚀
 Harpreet Sahota 🐕
