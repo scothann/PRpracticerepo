@@ -19,6 +19,7 @@ Byron Ojua-Nice 🚀
 Harpreet Sahota 🐕
 Tran Cong Son Nguyen 	ʕノ•ᴥ•ʔノ ︵ ┻━┻
 Autumn  Arcand (=^ ◡ ^=)
+Justin Choi ( ・_・)ノ
 Sean Brady (＾▽＾)
 Kjirsten Fastabend o(^-^)o
 Ross Wilson   `(O.o)`
