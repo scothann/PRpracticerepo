@@ -20,6 +20,7 @@ Harpreet Sahota 🐕
 Seongyeong Ju ٩( ᐛ )و
 Tran Cong Son Nguyen 	ʕノ•ᴥ•ʔノ ︵ ┻━┻
 Autumn  Arcand (=^ ◡ ^=)
+Olga Mokshantseva <3 
 Rox Beecher ✧
 Andrew Chen 👀
 Justin Choi ( ・_・)ノ
