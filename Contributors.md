@@ -6,6 +6,7 @@ Jacob Hopkins :)
 Maddi Spawn :)
 Quinn Downey =^_^=
 Eric Huang 😎
+Mason Rauschkolb |*_*|
 Cameron Rice ‼️
 Shinji Nobuhara (^_^)
 Connor Wallace :D
