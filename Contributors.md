@@ -20,6 +20,7 @@ Harpreet Sahota 🐕
 Seongyeong Ju ٩( ᐛ )و
 Tran Cong Son Nguyen 	ʕノ•ᴥ•ʔノ ︵ ┻━┻
 Autumn  Arcand (=^ ◡ ^=)
+Andrew Chen 👀
 Justin Choi ( ・_・)ノ
 Sean Brady (＾▽＾)
 Kjirsten Fastabend o(^-^)o
