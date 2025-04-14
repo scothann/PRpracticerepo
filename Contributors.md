@@ -18,3 +18,4 @@ Harpreet Sahota 🐕
 Tran Cong Son Nguyen 	ʕノ•ᴥ•ʔノ ︵ ┻━┻
 Autumn  Arcand (=^ ◡ ^=)
 Grace Mtawali :)
+Anna Patterson 🦀
