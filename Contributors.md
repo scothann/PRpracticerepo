@@ -8,6 +8,7 @@ Quinn Downey =^_^=
 Eric Huang 😎
 Cameron Rice ‼️
 Shinji Nobuhara (^_^)
+Theodore Ngo :l
 Connor Wallace :D
 Gwen Clayton ★
 Monica Cao :D
@@ -17,3 +18,4 @@ Byron Ojua-Nice 🚀
 Harpreet Sahota 🐕
 Tran Cong Son Nguyen 	ʕノ•ᴥ•ʔノ ︵ ┻━┻
 Autumn  Arcand (=^ ◡ ^=)
+
