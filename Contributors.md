@@ -5,6 +5,7 @@ Hisashi Young >.>
 Janita Aamir ʕ •ᴥ•ʔ
 Jacob Hopkins :)
 Maddi Spawn :)
+Katrine Chow ヾ(＾∇＾)
 Quinn Downey =^_^=
 Eric Huang 😎
 Mason Rauschkolb |*_*|
@@ -13,6 +14,8 @@ Cameron Rice ‼️
 Shinji Nobuhara (^_^)
 Theodore Ngo :l
 Connor Wallace :D
+Theodore Norred 👨‍💻
+Chase Copeland ٩(^‿^)۶
 Gwen Clayton ★
 Monica Cao :D
 Tina Le :)
@@ -27,7 +30,9 @@ Tran Cong Son Nguyen 	ʕノ•ᴥ•ʔノ ︵ ┻━┻
 Autumn  Arcand (=^ ◡ ^=)
 Adam Jennings :)
 Theo Sweilem :I
+Elliott Demain
 Paul Nguyen xD
+Marciles Matti
 Kaushik Dontula :)
 Aadil Ali :p
 Olga Mokshantseva <3 
@@ -39,5 +44,11 @@ Kjirsten Fastabend o(^-^)o
 Ross Wilson   `(O.o)`
 Grace Mtawali :)
 Anna Patterson 🦀
+Phuoc Nguyen 💯
 Ethan Price 😊
-
+Jaron Rosenau ॐ
+Noah Dean (👉ﾟヮﾟ)👉
+Bradley Thomas (=🝦 ﻌ 🝦=)  
+Jacob Nunez ┬──┬ ノ( ゜-゜ノ)
+Aria Coalson 🦧
+Cameron Boyd
