@@ -51,6 +51,7 @@ Justin Choi ( ・_・)ノ
 Sean Brady (＾▽＾)
 Dylan Freshman \_(*_*)_/
 Kjirsten Fastabend o(^-^)o)`
+Yuritzia Peraza :))
 Ross Wilson   `(O.o)`
 Will Garrison !o!
 Grace Mtawali :)
