@@ -41,6 +41,7 @@ Marciles Matti
 Kaushik Dontula :)
 Kyler Lawbaugh ._.
 Aadil Ali :p
+Nicholas Noochlaor ⚡
 Jace Bolante :)
 Olga Mokshantseva <3 
 Jacob Phillips ╰(*°▽°*)╯
@@ -67,7 +68,7 @@ Andy(Truongan) Vo (づ ᴗ _ᴗ)づ♡
 Vincent Le 💀
 Jaron Rosenau ॐ
 Noah Dean (👉ﾟヮﾟ)👉
-Bradley Thomas (=🝦 ﻌ 🝦=)  
+Bradley Thomas (=🝦 ﻌ 🝦=)
 Jacob Nunez ┬──┬ ノ( ゜-゜ノ)
 Aria Coalson 🦧
 Taryn Eng 🌸
