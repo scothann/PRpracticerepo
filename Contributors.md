@@ -40,6 +40,7 @@ Kaushik Dontula :)
 Kyler Lawbaugh ._.
 Aadil Ali :p
 Olga Mokshantseva <3 
+Jacob Phillips ╰(*°▽°*)╯
 Rox Beecher ✧
 Andrew Chen 👀
 Justin Choi ( ・_・)ノ
