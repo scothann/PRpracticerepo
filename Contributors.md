@@ -45,6 +45,7 @@ Grace Mtawali :)
 Anna Patterson 🦀
 Phuoc Nguyen 💯
 Ethan Price 😊
+Bradley Thomas (=🝦 ﻌ 🝦=)  
 Jacob Nunez ┬──┬ ノ( ゜-゜ノ)
 Aria Coalson 🦧
 Cameron Boyd
