@@ -4,6 +4,7 @@ Pablo Garza ;)
 Janita Aamir ʕ •ᴥ•ʔ
 Jacob Hopkins :)
 Maddi Spawn :)
+Katrine Chow ヾ(＾∇＾)
 Quinn Downey =^_^=
 Eric Huang 😎
 Mason Rauschkolb |*_*|
@@ -12,6 +13,8 @@ Cameron Rice ‼️
 Shinji Nobuhara (^_^)
 Theodore Ngo :l
 Connor Wallace :D
+Theodore Norred 👨‍💻
+Chase Copeland ٩(^‿^)۶
 Gwen Clayton ★
 Monica Cao :D
 Tina Le :)
@@ -40,4 +43,6 @@ Grace Mtawali :)
 Anna Patterson 🦀
 Phuoc Nguyen 💯
 Ethan Price 😊
-
+Jacob Nunez ┬──┬ ノ( ゜-゜ノ)
+Aria Coalson 🦧
+Cameron Boyd
