@@ -26,6 +26,7 @@ Chris Ho
 Noshin Raisa ✨
 Byron Ojua-Nice 🚀
 Harpreet Sahota 🐕
+Charissa Kau 😛
 Seongyeong Ju ٩( ᐛ )و
 Tran Cong Son Nguyen 	ʕノ•ᴥ•ʔノ ︵ ┻━┻
 Autumn  Arcand (=^ ◡ ^=)
