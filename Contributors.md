@@ -71,4 +71,5 @@ Aria Coalson 🦧
 Taryn Eng 🌸
 Danny Nguyen
 Cameron Boyd
+Brayden Aldrich
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
