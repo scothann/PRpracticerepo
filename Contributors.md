@@ -53,6 +53,7 @@ Anshu Avinash 🙃
 Anna Patterson 🦀
 Phuoc Nguyen 💯
 Ethan Price 😊
+Abigail Whittle ♡
 Khoi Le :)
 Jonas Field-Patton 🙊
 Jing Liu `w`
