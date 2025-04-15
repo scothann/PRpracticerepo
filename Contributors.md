@@ -9,13 +9,12 @@ Eric Huang 😎
 Cameron Rice ‼️
 Shinji Nobuhara (^_^)
 Connor Wallace :D
+Chase Copeland ٩(^‿^)۶
 Gwen Clayton ★
 Monica Cao :D
-Chase Copeland ٩(^‿^)۶
 Gordon Grey :]
 Lucinda Camacho ❤️
 Byron Ojua-Nice 🚀
 Harpreet Sahota 🐕
 Tran Cong Son Nguyen 	ʕノ•ᴥ•ʔノ ︵ ┻━┻
 Autumn  Arcand (=^ ◡ ^=)
-Chase Copeland | (• ◡•)|
