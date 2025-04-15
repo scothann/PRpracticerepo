@@ -38,6 +38,7 @@ Kaushik Dontula :)
 Aadil Ali :p
 Olga Mokshantseva <3 
 Rox Beecher ✧
+Caden Smith
 Andrew Chen 👀
 Justin Choi ( ・_・)ノ
 Sean Brady (＾▽＾)
@@ -58,4 +59,3 @@ Bradley Thomas (=🝦 ﻌ 🝦=)
 Jacob Nunez ┬──┬ ノ( ゜-゜ノ)
 Aria Coalson 🦧
 Cameron Boyd
-Caden Smith
