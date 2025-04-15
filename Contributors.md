@@ -43,6 +43,7 @@ Sean Brady (＾▽＾)
 Kjirsten Fastabend o(^-^)o
 Ross Wilson   `(O.o)`
 Grace Mtawali :)
+Anshu Avinash 🙃
 Anna Patterson 🦀
 Phuoc Nguyen 💯
 Ethan Price 😊
