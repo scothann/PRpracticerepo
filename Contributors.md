@@ -72,6 +72,7 @@ Aria Coalson 🦧
 Taryn Eng 🌸
 Danny Nguyen
 Cameron Boyd
+Aizen Yamashita ┌( ಠ_ಠ )┘
 Ankith Sridhar ._.
 Rebecca (=⌒‿‿⌒=)
 Brayden Aldrich
