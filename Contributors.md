@@ -13,6 +13,7 @@ Shinji Nobuhara (^_^)
 Theodore Ngo :l
 Connor Wallace :D
 Theodore Norred 👨‍💻
+Chase Copeland ٩(^‿^)۶
 Gwen Clayton ★
 Monica Cao :D
 Tina Le :)
@@ -40,4 +41,5 @@ Ross Wilson   `(O.o)`
 Grace Mtawali :)
 Anna Patterson 🦀
 Ethan Price 😊
-
+Aria Coalson 🦧
+Cameron Boyd
