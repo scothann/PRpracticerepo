@@ -52,6 +52,7 @@ Anshu Avinash 🙃
 Anna Patterson 🦀
 Phuoc Nguyen 💯
 Ethan Price 😊
+Jonas Field-Patton 🙊
 Jing Liu `w`
 Andy(Truongan) Vo (づ ᴗ _ᴗ)づ♡
 Vincent Le 💀
