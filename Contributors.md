@@ -29,6 +29,7 @@ Tran Cong Son Nguyen 	ʕノ•ᴥ•ʔノ ︵ ┻━┻
 Autumn  Arcand (=^ ◡ ^=)
 Adam Jennings :)
 Theo Sweilem :I
+Elliott Demain
 Paul Nguyen xD
 Marciles Matti
 Kaushik Dontula :)
