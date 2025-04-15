@@ -45,6 +45,7 @@ Andrew Chen 👀
 Justin Choi ( ・_・)ノ
 Sean Brady (＾▽＾)
 Kjirsten Fastabend o(^-^)o)`
+Yuritzia Peraza :))
 Ross Wilson   `(O.o)`
 Will Garrison !o!
 Grace Mtawali :)
