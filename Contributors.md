@@ -14,6 +14,7 @@ Theodore Ngo :l
 Connor Wallace :D
 Gwen Clayton ★
 Monica Cao :D
+Torsten Bergersen (-.(-.(-.-).-).-)
 Tina Le :)
 Gordon Grey :]
 Lucinda Camacho ❤️
