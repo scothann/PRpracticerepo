@@ -4,6 +4,7 @@ Pablo Garza ;)
 Janita Aamir ʕ •ᴥ•ʔ
 Jacob Hopkins :)
 Maddi Spawn :)
+Katrine Chow ヾ(＾∇＾)
 Quinn Downey =^_^=
 Eric Huang 😎
 Mason Rauschkolb |*_*|
