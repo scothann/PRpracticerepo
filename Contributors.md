@@ -12,6 +12,7 @@ Cameron Rice ‼️
 Shinji Nobuhara (^_^)
 Theodore Ngo :l
 Connor Wallace :D
+Theodore Norred 👨‍💻
 Chase Copeland ٩(^‿^)۶
 Gwen Clayton ★
 Monica Cao :D
