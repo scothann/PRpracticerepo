@@ -9,6 +9,7 @@ Katrine Chow ヾ(＾∇＾)
 Quinn Downey =^_^=
 Eric Huang 😎
 Mason Rauschkolb |*_*|
+Alexander Fox
 Ricardo Diaz :)
 Cameron Rice ‼️
 Shinji Nobuhara (^_^)
