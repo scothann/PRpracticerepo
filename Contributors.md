@@ -1,6 +1,7 @@
 Hann Scott (•̀ᴗ•́)و
 Jonathan Kaminski❓
 Pablo Garza ;)
+Hisashi Young >.>
 Janita Aamir ʕ •ᴥ•ʔ
 Jacob Hopkins :)
 Maddi Spawn :)
