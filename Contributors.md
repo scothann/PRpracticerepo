@@ -40,8 +40,9 @@ Rox Beecher ✧
 Andrew Chen 👀
 Justin Choi ( ・_・)ノ
 Sean Brady (＾▽＾)
-Kjirsten Fastabend o(^-^)o
+Kjirsten Fastabend o(^-^)o)`
 Ross Wilson   `(O.o)`
+Will Garrison !o!
 Grace Mtawali :)
 Anshu Avinash 🙃
 Anna Patterson 🦀
