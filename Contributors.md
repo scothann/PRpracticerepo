@@ -65,5 +65,6 @@ Noah Dean (👉ﾟヮﾟ)👉
 Bradley Thomas (=🝦 ﻌ 🝦=)  
 Jacob Nunez ┬──┬ ノ( ゜-゜ノ)
 Aria Coalson 🦧
+Danny Nguyen
 Cameron Boyd
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
