@@ -65,3 +65,4 @@ Bradley Thomas (=🝦 ﻌ 🝦=)
 Jacob Nunez ┬──┬ ノ( ゜-゜ノ)
 Aria Coalson 🦧
 Cameron Boyd
+Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
