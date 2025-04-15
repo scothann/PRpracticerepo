@@ -11,6 +11,7 @@ Shinji Nobuhara (^_^)
 Connor Wallace :D
 Gwen Clayton ★
 Monica Cao :D
+Chase Copeland ٩(^‿^)۶
 Gordon Grey :]
 Lucinda Camacho ❤️
 Byron Ojua-Nice 🚀
