@@ -49,6 +49,7 @@ Anshu Avinash 🙃
 Anna Patterson 🦀
 Phuoc Nguyen 💯
 Ethan Price 😊
+Jing Liu `w`
 Andy(Truongan) Vo (づ ᴗ _ᴗ)づ♡
 Vincent Le 💀
 Jaron Rosenau ॐ
