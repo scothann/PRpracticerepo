@@ -34,6 +34,7 @@ Rox Beecher ✧
 Andrew Chen 👀
 Justin Choi ( ・_・)ノ
 Sean Brady (＾▽＾)
+Dylan Freshman \_(*_*)_/
 Kjirsten Fastabend o(^-^)o
 Ross Wilson   `(O.o)`
 Grace Mtawali :)
