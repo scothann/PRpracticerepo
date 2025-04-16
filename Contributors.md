@@ -78,11 +78,11 @@ Blayton Vidrine🌟
 d(0v0)b Him Shun Lee
 Brandon Kell (ง •̀_•́)ง
 Aizen Yamashita ┌( ಠ_ಠ )┘
+  
+Zach Elms ¯\\\_ (ツ)\_/¯  
+  
 Ankith Sridhar ._.
 Rebecca (=⌒‿‿⌒=)
 Brayden Aldrich
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)>  
-  
-Zach Elms ¯\\\_ (ツ)\_/¯  
-  
   
