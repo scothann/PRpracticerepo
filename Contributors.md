@@ -57,6 +57,7 @@ Ross Wilson   `(O.o)`
 Will Garrison !o!
 Grace Mtawali :)
 Anshu Avinash 🙃
+Nicholas Guiley
 Anna Patterson 🦀
 Phuoc Nguyen 💯
 Ethan Price 😊
