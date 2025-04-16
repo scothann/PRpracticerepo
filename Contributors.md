@@ -94,6 +94,7 @@ Aizen Yamashita ┌( ಠ_ಠ )┘
 Lexie Tran ૮ ˶ᵔ ᵕ ᵔ˶ ა
 Ankith Sridhar ._.
 Rebecca (=⌒‿‿⌒=)
+Krista Koeplin 
 Brayden Aldrich
 C.S. ૮˶• ﻌ •˶ა 
 David McVittie o/
