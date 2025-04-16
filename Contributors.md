@@ -23,6 +23,7 @@ Chase Copeland ٩(^‿^)۶
 Gwen Clayton ★
 Erik Christiansen C|_|
 Monica Cao :D
+- Umer Mansoor 🚀
 Torsten Bergersen (-.(-.(-.-).-).-)
 Tina Le :)
 Zhixiang Ye ;)
@@ -104,4 +105,4 @@ Brian Anderson
 Alon Greenberg 🐟
 John Herbst 
 Jackson Myers :D
-David Saucier 
+David Saucier
