@@ -88,6 +88,7 @@ Lexie Tran ૮ ˶ᵔ ᵕ ᵔ˶ ა
 Ankith Sridhar ._.
 Rebecca (=⌒‿‿⌒=)
 Brayden Aldrich
+C.S. ૮˶• ﻌ •˶ა 
 David McVittie o/
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
 Max Goldstein 🐘
