@@ -99,6 +99,7 @@ Brayden Aldrich
 C.S. ૮˶• ﻌ •˶ა 
 David McVittie o/
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
+Michael Ispas
 Kim Manske
 Neal Ornes
 Emma Henderson 💜
