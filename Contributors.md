@@ -76,6 +76,7 @@ Taryn Eng 🌸
 Danny Nguyen
 Brett Hanna
 Cameron Boyd
+Gwyndolyn Shafer ^w^
 Blayton Vidrine🌟
 d(0v0)b Him Shun Lee
 Brandon Kell (ง •̀_•́)ง
