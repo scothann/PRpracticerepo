@@ -59,6 +59,7 @@ Grace Mtawali :)
 Anshu Avinash 🙃
 Anna Patterson 🦀
 Phuoc Nguyen 💯
+Tyler Perkins
 Ethan Price 😊
 Abigail Whittle ♡
 Khoi Le :)
@@ -82,3 +83,4 @@ Ankith Sridhar ._.
 Rebecca (=⌒‿‿⌒=)
 Brayden Aldrich
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
+
