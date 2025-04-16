@@ -81,4 +81,5 @@ Aizen Yamashita ┌( ಠ_ಠ )┘
 Ankith Sridhar ._.
 Rebecca (=⌒‿‿⌒=)
 Brayden Aldrich
-Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
+Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)>
+C.S. ૮˶• ﻌ •˶ა 
