@@ -99,6 +99,7 @@ Brayden Aldrich
 C.S. ૮˶• ﻌ •˶ა 
 David McVittie o/
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
+David Leung 🇨🇦
 Michael Ispas
 Kim Manske
 Neal Ornes
