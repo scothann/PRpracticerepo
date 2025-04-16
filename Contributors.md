@@ -72,6 +72,7 @@ Bradley Thomas (=🝦 ﻌ 🝦=)
 Jacob Nunez ┬──┬ ノ( ゜-゜ノ)
 Aria Coalson 🦧
 Taryn Eng 🌸
+Gavin Bennett ◉‿◉
 Danny Nguyen
 Cameron Boyd
 Blayton Vidrine🌟
