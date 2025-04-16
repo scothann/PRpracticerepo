@@ -19,6 +19,7 @@ Connor Wallace :D
 Theodore Norred 👨‍💻
 Chase Copeland ٩(^‿^)۶
 Gwen Clayton ★
+Erik Christiansen C|_|
 Monica Cao :D
 Torsten Bergersen (-.(-.(-.-).-).-)
 Tina Le :)
