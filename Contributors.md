@@ -11,6 +11,7 @@ Quinn Downey =^_^=
 Eric Huang 😎
 Mason Rauschkolb |*_*|
 Alexander Fox
+Nira Patel 🫶🏽
 Ricardo Diaz :)
 Cameron Rice ‼️
 Shinji Nobuhara (^_^)
