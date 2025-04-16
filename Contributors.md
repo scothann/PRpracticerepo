@@ -85,6 +85,7 @@ Lexie Tran ૮ ˶ᵔ ᵕ ᵔ˶ ა
 Ankith Sridhar ._.
 Rebecca (=⌒‿‿⌒=)
 Brayden Aldrich
+David McVittie o/
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
 Jackson Myers :D
 David Saucier 
