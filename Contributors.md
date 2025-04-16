@@ -60,6 +60,7 @@ Nathan Shadnik
 Andrew Chen 👀
 Justin Choi ( ・_・)ノ
 Sean Brady (＾▽＾)
+Tyler Perkins
 Dylan Freshman \_(*_*)_/
 Kjirsten Fastabend o(^-^)o)`
 Yuritzia Peraza :))
