@@ -89,6 +89,7 @@ Rebecca (=⌒‿‿⌒=)
 Brayden Aldrich
 David McVittie o/
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
+Jonathan Fairgrieve 😎
 Hunter Evangelista (˘⌣˘)つ🥤
 Brian Anderson
 Alon Greenberg 🐟
