@@ -23,9 +23,11 @@ Gwen Clayton ★
 Monica Cao :D
 Torsten Bergersen (-.(-.(-.-).-).-)
 Tina Le :)
+Sarah Nowalk 🐸
 Gordon Grey :]
 Lucinda Camacho ❤️
 Chris Ho
+Max Russell 🦖
 Noshin Raisa ✨
 Byron Ojua-Nice 🚀
 Harpreet Sahota 🐕
@@ -74,12 +76,20 @@ Jacob Nunez ┬──┬ ノ( ゜-゜ノ)
 Aria Coalson 🦧
 Taryn Eng 🌸
 Danny Nguyen
+Brett Hanna
 Cameron Boyd
+Gwyndolyn Shafer ^w^
 Blayton Vidrine🌟
 d(0v0)b Him Shun Lee
 Brandon Kell (ง •̀_•́)ง
 Aizen Yamashita ┌( ಠ_ಠ )┘
+Lexie Tran ૮ ˶ᵔ ᵕ ᵔ˶ ა
 Ankith Sridhar ._.
 Rebecca (=⌒‿‿⌒=)
 Brayden Aldrich
+David McVittie o/
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
+Alon Greenberg 🐟
+John Herbst 
+Jackson Myers :D
+David Saucier 
