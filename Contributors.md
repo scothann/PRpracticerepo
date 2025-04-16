@@ -76,6 +76,7 @@ Jonas Field-Patton 🙊
 Jing Liu `w`
 Andy(Truongan) Vo (づ ᴗ _ᴗ)づ♡
 Vincent Le 💀
+Devin Black (💎‿💎)
 Jaron Rosenau ॐ
 Noah Dean (👉ﾟヮﾟ)👉
 Bradley Thomas (=🝦 ﻌ 🝦=)
