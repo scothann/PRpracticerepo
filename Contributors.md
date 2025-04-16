@@ -42,8 +42,10 @@ Marciles Matti
 Kaushik Dontula :)
 Kyler Lawbaugh ._.
 Aadil Ali :p
+Nicholas Noochlaor ⚡
 Jace Bolante :)
 Olga Mokshantseva <3 
+Jacob Phillips ╰(*°▽°*)╯
 Rox Beecher ✧
 Caden Smith
 Andrew Chen 👀
@@ -51,6 +53,7 @@ Justin Choi ( ・_・)ノ
 Sean Brady (＾▽＾)
 Dylan Freshman \_(*_*)_/
 Kjirsten Fastabend o(^-^)o)`
+Yuritzia Peraza :))
 Ross Wilson   `(O.o)`
 Will Garrison !o!
 Grace Mtawali :)
@@ -66,12 +69,16 @@ Andy(Truongan) Vo (づ ᴗ _ᴗ)づ♡
 Vincent Le 💀
 Jaron Rosenau ॐ
 Noah Dean (👉ﾟヮﾟ)👉
-Bradley Thomas (=🝦 ﻌ 🝦=)  
+Bradley Thomas (=🝦 ﻌ 🝦=)
 Jacob Nunez ┬──┬ ノ( ゜-゜ノ)
 Aria Coalson 🦧
 Taryn Eng 🌸
 Danny Nguyen
 Cameron Boyd
+Blayton Vidrine🌟
+d(0v0)b Him Shun Lee
+Brandon Kell (ง •̀_•́)ง
+Aizen Yamashita ┌( ಠ_ಠ )┘
 Ankith Sridhar ._.
 Rebecca (=⌒‿‿⌒=)
 Brayden Aldrich
