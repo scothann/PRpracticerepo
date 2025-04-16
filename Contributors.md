@@ -12,6 +12,7 @@ Eric Huang 😎
 Mason Rauschkolb |*_*|
 Alexander Fox
 Ricardo Diaz :)
+Josh Flenniken 🥲
 Cameron Rice ‼️
 Shinji Nobuhara (^_^)
 Theodore Ngo :l
@@ -19,12 +20,15 @@ Connor Wallace :D
 Theodore Norred 👨‍💻
 Chase Copeland ٩(^‿^)۶
 Gwen Clayton ★
+Erik Christiansen C|_|
 Monica Cao :D
 Torsten Bergersen (-.(-.(-.-).-).-)
 Tina Le :)
+Sarah Nowalk 🐸
 Gordon Grey :]
 Lucinda Camacho ❤️
 Chris Ho
+Max Russell 🦖
 Noshin Raisa ✨
 Byron Ojua-Nice 🚀
 Harpreet Sahota 🐕
@@ -74,12 +78,24 @@ Jacob Nunez ┬──┬ ノ( ゜-゜ノ)
 Aria Coalson 🦧
 Taryn Eng 🌸
 Danny Nguyen
+Brett Hanna
 Cameron Boyd
+Gwyndolyn Shafer ^w^
 Blayton Vidrine🌟
 d(0v0)b Him Shun Lee
 Brandon Kell (ง •̀_•́)ง
 Aizen Yamashita ┌( ಠ_ಠ )┘
+Lexie Tran ૮ ˶ᵔ ᵕ ᵔ˶ ა
 Ankith Sridhar ._.
 Rebecca (=⌒‿‿⌒=)
 Brayden Aldrich
+David McVittie o/
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
+Max Goldstein 🐘
+Jonathan Fairgrieve 😎
+Hunter Evangelista (˘⌣˘)つ🥤
+Brian Anderson
+Alon Greenberg 🐟
+John Herbst 
+Jackson Myers :D
+David Saucier
