@@ -107,6 +107,7 @@ Victoria Liu ≽^•⩊•^≼
 C.S. ૮˶• ﻌ •˶ა 
 David McVittie o/
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
+Derick Do |'L'|
 Rajarshi Biswas 
 Salim Mohamed 🧛
 Mithun Karthikeyan 🔥
