@@ -6,6 +6,7 @@ Hisashi Young >.>
 Janita Aamir ʕ •ᴥ•ʔ
 Jacob Hopkins :)
 Maddi Spawn :)
+Wade Eddy
 Katrine Chow ヾ(＾∇＾)
 Quinn Downey =^_^=
 Eric Huang 😎
