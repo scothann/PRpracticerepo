@@ -56,6 +56,7 @@ Olga Mokshantseva <3
 Jacob Phillips ╰(*°▽°*)╯
 Rox Beecher ✧
 Caden Smith
+Nathan Shadnik 
 Andrew Chen 👀
 Justin Choi ( ・_・)ノ
 Sean Brady (＾▽＾)
