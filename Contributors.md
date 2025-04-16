@@ -100,6 +100,7 @@ Victoria Liu ≽^•⩊•^≼
 C.S. ૮˶• ﻌ •˶ა 
 David McVittie o/
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
+Natasha Pavelek .☘︎ ݁˖
 David Leung 🇨🇦
 Michael Ispas
 Kim Manske
