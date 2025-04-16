@@ -96,6 +96,7 @@ Brayden Aldrich
 C.S. ૮˶• ﻌ •˶ა 
 David McVittie o/
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
+Emma Henderson 💜
 Max Goldstein 🐘
 Jonathan Fairgrieve 😎
 Hunter Evangelista (˘⌣˘)つ🥤
