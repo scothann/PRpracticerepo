@@ -25,6 +25,7 @@ Tina Le :)
 Gordon Grey :]
 Lucinda Camacho ❤️
 Chris Ho
+Max Russell 🦖
 Noshin Raisa ✨
 Byron Ojua-Nice 🚀
 Harpreet Sahota 🐕
