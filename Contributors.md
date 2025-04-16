@@ -20,6 +20,8 @@ Theodore Norred 👨‍💻
 Chase Copeland ٩(^‿^)۶
 Gwen Clayton ★
 Monica Cao :D
+- Umer Mansoor 🚀
+
 Torsten Bergersen (-.(-.(-.-).-).-)
 Tina Le :)
 Gordon Grey :]
