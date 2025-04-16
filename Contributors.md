@@ -96,6 +96,7 @@ Ankith Sridhar ._.
 Rebecca (=⌒‿‿⌒=)
 Krista Koeplin 
 Brayden Aldrich
+Victoria Liu ≽^•⩊•^≼
 C.S. ૮˶• ﻌ •˶ა 
 David McVittie o/
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
