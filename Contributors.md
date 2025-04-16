@@ -44,6 +44,7 @@ Aadil Ali :p
 Nicholas Noochlaor ⚡
 Jace Bolante :)
 Olga Mokshantseva <3 
+Sameer Chohan :)
 Jacob Phillips ╰(*°▽°*)╯
 Rox Beecher ✧
 Caden Smith
