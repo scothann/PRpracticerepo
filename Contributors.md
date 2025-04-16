@@ -80,5 +80,6 @@ Brandon Kell (ง •̀_•́)ง
 Aizen Yamashita ┌( ಠ_ಠ )┘
 Ankith Sridhar ._.
 Rebecca (=⌒‿‿⌒=)
+Bradley Rule  (づ ◕_◕)づ
 Brayden Aldrich
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
