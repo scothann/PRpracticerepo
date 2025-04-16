@@ -5,6 +5,7 @@ Pablo Garza ;)
 Hisashi Young >.>
 Janita Aamir ʕ •ᴥ•ʔ
 Jacob Hopkins :)
+James Hinson :)
 Maddi Spawn :)
 Wade Eddy
 Katrine Chow ヾ(＾∇＾)
