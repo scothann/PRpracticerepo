@@ -14,6 +14,7 @@ Hannah Le 🪼
 Eric Huang 😎
 Mason Rauschkolb |*_*|
 Alexander Fox
+Nira Patel 🫶🏽
 Ricardo Diaz :)
 Josh Flenniken 🥲
 Cameron Rice ‼️
