@@ -16,7 +16,6 @@ Mason Rauschkolb |*_*|
 Alexander Fox
 Nira Patel 🫶🏽
 Ricardo Diaz :)
-Ricardo Diaz :)
 Josh Flenniken 🥲
 Cameron Rice ‼️
 Shinji Nobuhara (^_^)
@@ -58,6 +57,7 @@ Aadil Ali :p
 Ian Dugo ⊂(✰‿✰)つ
 Nicholas Noochlaor ⚡
 Jace Bolante :)
+Sameer Chohan :)
 Olga Mokshantseva <3
 Don Everett
 Jacob Phillips ╰(*°▽°*)╯
