@@ -112,6 +112,7 @@ Victoria Liu ≽^•⩊•^≼
 C.S. ૮˶• ﻌ •˶ა 
 David McVittie o/
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
+Cady Martin >:))
 Derick Do |'L'|
 Rajarshi Biswas 
 Salim Mohamed 🧛
