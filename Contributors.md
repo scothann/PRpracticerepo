@@ -5,13 +5,16 @@ Pablo Garza ;)
 Hisashi Young >.>
 Janita Aamir ʕ •ᴥ•ʔ
 Jacob Hopkins :)
+James Hinson :)
 Maddi Spawn :)
 Wade Eddy
 Katrine Chow ヾ(＾∇＾)
 Quinn Downey =^_^=
+Hannah Le 🪼
 Eric Huang 😎
 Mason Rauschkolb |*_*|
 Alexander Fox
+Nira Patel 🫶🏽
 Ricardo Diaz :)
 Josh Flenniken 🥲
 Cameron Rice ‼️
@@ -41,6 +44,7 @@ Seongyeong Ju ٩( ᐛ )و
 Tran Cong Son Nguyen 	ʕノ•ᴥ•ʔノ ︵ ┻━┻
 Autumn  Arcand (=^ ◡ ^=)
 Tiffany Conn (✿◠‿◠)
+Khadeeja Sajjad ⋆⭒˚.⋆
 Adam Jennings :)
 Theo Sweilem :I
 Elliott Demain
@@ -50,15 +54,20 @@ Marciles Matti
 Kaushik Dontula :)
 Kyler Lawbaugh ._.
 Aadil Ali :p
+Ian Dugo ⊂(✰‿✰)つ
 Nicholas Noochlaor ⚡
 Jace Bolante :)
-Olga Mokshantseva <3 
+Sameer Chohan :)
+Olga Mokshantseva <3
+Don Everett
 Jacob Phillips ╰(*°▽°*)╯
 Rox Beecher ✧
 Caden Smith
+Nathan Shadnik 
 Andrew Chen 👀
 Justin Choi ( ・_・)ノ
 Sean Brady (＾▽＾)
+Tyler Perkins
 Dylan Freshman \_(*_*)_/
 Kjirsten Fastabend o(^-^)o)`
 Yuritzia Peraza :))
@@ -66,6 +75,7 @@ Ross Wilson   `(O.o)`
 Will Garrison !o!
 Grace Mtawali :)
 Anshu Avinash 🙃
+Nicholas Guiley
 Anna Patterson 🦀
 Aileen Castro-Guzman <3
 Phuoc Nguyen 💯
@@ -76,6 +86,7 @@ Jonas Field-Patton 🙊
 Jing Liu `w`
 Andy(Truongan) Vo (づ ᴗ _ᴗ)づ♡
 Vincent Le 💀
+Devin Black (💎‿💎)
 Jaron Rosenau ॐ
 Noah Dean (👉ﾟヮﾟ)👉
 Bradley Thomas (=🝦 ﻌ 🝦=)
@@ -83,6 +94,7 @@ Jacob Nunez ┬──┬ ノ( ゜-゜ノ)
 Aria Coalson 🦧
 Taryn Eng 🌸
 Brian James
+Gavin Bennett ◉‿◉
 Danny Nguyen
 Brett Hanna
 Cameron Boyd
@@ -91,13 +103,28 @@ Blayton Vidrine🌟
 d(0v0)b Him Shun Lee
 Brandon Kell (ง •̀_•́)ง
 Aizen Yamashita ┌( ಠ_ಠ )┘
+Zach Elms ¯\\\_ (ツ)\_/¯  
 Lexie Tran ૮ ˶ᵔ ᵕ ᵔ˶ ა
 Ankith Sridhar ._.
 Rebecca (=⌒‿‿⌒=)
+Bradley Rule  (づ ◕_◕)づ
+Krista Koeplin 
 Brayden Aldrich
+Benjamin Leonard
+Victoria Liu ≽^•⩊•^≼
 C.S. ૮˶• ﻌ •˶ა 
 David McVittie o/
 Osbaldo Arellano <(• •<) ^ (•o•)^ (>• •)> 
+Christine Hart 🌟🌟🌟
+Cady Martin >:))
+Derick Do |'L'|
+Rajarshi Biswas 
+Salim Mohamed 🧛
+Mithun Karthikeyan 🔥
+Natasha Pavelek .☘︎ ݁˖
+David Leung 🇨🇦
+Michael Ispas
+Kim Manske
 Neal Ornes
 Emma Henderson 💜
 Max Goldstein 🐘
