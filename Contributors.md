@@ -54,7 +54,8 @@ Kyler Lawbaugh ._.
 Aadil Ali :p
 Nicholas Noochlaor ⚡
 Jace Bolante :)
-Olga Mokshantseva <3 
+Olga Mokshantseva <3
+Don Everett
 Jacob Phillips ╰(*°▽°*)╯
 Rox Beecher ✧
 Caden Smith
