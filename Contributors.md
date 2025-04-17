@@ -100,6 +100,7 @@ Zach Elms ¯\\\_ (ツ)\_/¯
 Lexie Tran ૮ ˶ᵔ ᵕ ᵔ˶ ა
 Ankith Sridhar ._.
 Rebecca (=⌒‿‿⌒=)
+Bradley Rule  (づ ◕_◕)づ
 Krista Koeplin 
 Brayden Aldrich
 Benjamin Leonard
