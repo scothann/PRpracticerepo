@@ -77,6 +77,7 @@ Grace Mtawali :)
 Anshu Avinash 🙃
 Nicholas Guiley
 Anna Patterson 🦀
+Helena Zhao c:
 Aileen Castro-Guzman <3
 Phuoc Nguyen 💯
 Ethan Price 😊
@@ -136,3 +137,4 @@ John Herbst
 Jackson Myers :D
 David Saucier
 Grant Hopkin 🍔
+Shonchalay Camarlinghi 
