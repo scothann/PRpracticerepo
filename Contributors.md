@@ -8,4 +8,5 @@ Rafael Ayala
 Xiaoyan "Sean" Yang
 Dylan Liu :D
 Liam Maguire
+Julie Bosley ¯\_(ツ)_/¯
 Denisa Marcisovska 🐈‍⬛
