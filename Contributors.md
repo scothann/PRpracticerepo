@@ -8,4 +8,5 @@ Rafael Ayala
 Xiaoyan "Sean" Yang
 Dylan Liu :D
 Liam Maguire
+Steve Rector
 Denisa Marcisovska 🐈‍⬛
