@@ -8,4 +8,5 @@ Rafael Ayala
 Xiaoyan "Sean" Yang
 Dylan Liu :D
 Liam Maguire
+Brenna Wilson
 Denisa Marcisovska 🐈‍⬛
