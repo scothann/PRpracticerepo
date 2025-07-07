@@ -5,6 +5,7 @@ Sara Nettle (*^_^*)
 Tyler Vincent
 Olivia ^_^
 Ahsun Tariq
+Jeffers Baxter
 Gabe Happ-Shine
 Audrey Do
 Michael  Jagielski ;P
