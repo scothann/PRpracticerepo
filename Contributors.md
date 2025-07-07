@@ -11,6 +11,7 @@ Dylan Liu :D
 Ethan Van Hoy
 Benny Chen
 Liam Maguire
+Julie Bosley ¯\_(ツ)_/¯
 Johanna Varness
 Elijah Davis
 Denisa Marcisovska 🐈‍⬛
