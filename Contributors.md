@@ -29,6 +29,7 @@ Julie Bosley ¯\_(ツ)_/¯
 Johanna Varness
 Elijah Davis
 Denisa Marcisovska 🐈‍⬛
+Ramiro Covarrubias ༼つ◕_◕༽つ
 Skye Samuels :)
 Forrest Roudebush
 Jackson Van Dyke 🏎️🏁
