@@ -13,6 +13,7 @@ Michael  Jagielski ;P
 Samantha Berg
 Rafael Ayala
 Xiaoyan "Sean" Yang
+Brandon Vang
 Dylan Liu :D
 Ethan Van Hoy
 Benny Chen
