@@ -7,5 +7,6 @@ Samantha Berg
 Rafael Ayala
 Xiaoyan "Sean" Yang
 Dylan Liu :D
+Charles Holz 💾
 Liam Maguire
 Denisa Marcisovska 🐈‍⬛
