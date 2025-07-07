@@ -12,6 +12,7 @@ Dylan Liu :D
 Ethan Van Hoy
 Benny Chen
 Liam Maguire
+Brenna Wilson
 Torin McDonald
 Isac Polasak (:P)
 Steve Rector
