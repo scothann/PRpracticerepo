@@ -19,6 +19,7 @@ Julie Bosley ¯\_(ツ)_/¯
 Johanna Varness
 Elijah Davis
 Denisa Marcisovska 🐈‍⬛
+Aaron Calderon :P
 Sam Chen (°▽°)/
 Lily Chen ᵕ̈
 Joseph Musgrove (^.^)>
