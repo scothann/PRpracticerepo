@@ -4,6 +4,7 @@ Scott Ladd (O.O)
 Tyler Vincent
 Olivia ^_^
 Ahsun Tariq
+Gabe Happ-Shine
 Audrey Do
 Samantha Berg
 Rafael Ayala
