@@ -15,6 +15,7 @@ Rafael Ayala
 Xiaoyan "Sean" Yang
 Brandon Vang
 Dylan Liu :D
+Charles Holz 💾
 Ethan Van Hoy
 Benny Chen
 Liam Maguire
