@@ -2,6 +2,7 @@ Hann Scott (•̀ᴗ•́)و
 Kevin Mai
 Scott Ladd (O.O)
 Ahsun Tariq
+Daniel Hernandez 👋
 Audrey Do
 Samantha Berg
 Rafael Ayala
