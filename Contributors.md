@@ -19,6 +19,7 @@ Julie Bosley ¯\_(ツ)_/¯
 Johanna Varness
 Elijah Davis
 Denisa Marcisovska 🐈‍⬛
+Raahi Vaidya
 Natalie Dettmer
 Zach Riser
 Cooper Thompson
