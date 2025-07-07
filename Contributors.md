@@ -1,6 +1,7 @@
 Hann Scott (•̀ᴗ•́)و
 Kevin Mai
 Scott Ladd (O.O)
+Tyler Vincent
 Olivia ^_^
 Ahsun Tariq
 Audrey Do
