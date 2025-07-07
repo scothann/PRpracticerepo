@@ -11,6 +11,7 @@ Dylan Liu :D
 Ethan Van Hoy
 Benny Chen
 Liam Maguire
+Isac Polasak (:P)
 Steve Rector
 Julie Bosley ¯\_(ツ)_/¯
 Johanna Varness
