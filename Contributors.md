@@ -15,6 +15,7 @@ Julie Bosley ¯\_(ツ)_/¯
 Johanna Varness
 Elijah Davis
 Denisa Marcisovska 🐈‍⬛
+Guy Cohen
 Ryo Kumakawa
 Lewis Do xD
 Robert Fraker
