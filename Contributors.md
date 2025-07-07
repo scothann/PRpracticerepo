@@ -12,6 +12,7 @@ Benny Chen
 Liam Maguire
 Elijah Davis
 Denisa Marcisovska 🐈‍⬛
+Lewis Do xD
 Robert Fraker
 Brenna Jennings 😊
 Jacob Korobellis
