@@ -18,6 +18,7 @@ Julie Bosley ¯\_(ツ)_/¯
 Johanna Varness
 Elijah Davis
 Denisa Marcisovska 🐈‍⬛
+Lily Chen ᵕ̈
 Joseph Musgrove (^.^)>
 Matthew Menold
 Guy Cohen
