@@ -6,6 +6,7 @@ Audrey Do
 Samantha Berg
 Rafael Ayala
 Xiaoyan "Sean" Yang
+Brandon Vang
 Dylan Liu :D
 Liam Maguire
 Denisa Marcisovska 🐈‍⬛
