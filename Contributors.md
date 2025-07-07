@@ -19,6 +19,7 @@ Charles Holz 💾
 Ethan Van Hoy
 Benny Chen
 Liam Maguire
+James "JIMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMmMMMMMMMMMMMMMMMMMMMMMMNY" Liu
 Brenna Wilson
 Torin McDonald
 Isac Polasak (:P)
