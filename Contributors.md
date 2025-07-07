@@ -19,6 +19,7 @@ Julie Bosley ¯\_(ツ)_/¯
 Johanna Varness
 Elijah Davis
 Denisa Marcisovska 🐈‍⬛
+Zach Riser
 Cooper Thompson
 Aaron Calderon :P
 Sam Chen (°▽°)/
