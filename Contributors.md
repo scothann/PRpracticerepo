@@ -1,7 +1,7 @@
 Hann Scott (•̀ᴗ•́)و
 Kevin Mai
 Scott Ladd (O.O)
-Sara Nettle (*^_^*)
+Sara Nettle (_^\_^_)
 Tyler Vincent
 Olivia ^_^
 Ahsun Tariq
@@ -9,7 +9,7 @@ Daniel Hernandez 👋
 Jeffers Baxter
 Gabe Happ-Shine
 Audrey Do
-Michael  Jagielski ;P
+Michael Jagielski ;P
 Samantha Berg
 Rafael Ayala
 Xiaoyan "Sean" Yang
@@ -29,7 +29,7 @@ Julie Bosley ¯\_(ツ)_/¯
 Johanna Varness
 Elijah Davis
 Denisa Marcisovska 🐈‍⬛
-Ramiro Covarrubias ༼つ◕_◕༽つ
+Ramiro Covarrubias ༼つ ◕_◕༽つ
 Skye Samuels :)
 Forrest Roudebush
 Jackson Van Dyke 🏎️🏁
@@ -51,5 +51,6 @@ Lewis Do xD
 Robert Fraker
 Brenna Jennings 😊
 Jacob Korobellis
-🕊 Israel Polasak 
+🕊 Israel Polasak
 Anne Dang (:P)
+Matthew Alviar ε=ε=ε=┌(;\*´Д`)ﾉ
