@@ -13,6 +13,7 @@ Liam Maguire
 Johanna Varness
 Elijah Davis
 Denisa Marcisovska 🐈‍⬛
+Ryo Kumakawa
 Lewis Do xD
 Robert Fraker
 Brenna Jennings 😊
