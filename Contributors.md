@@ -8,6 +8,7 @@ Samantha Berg
 Rafael Ayala
 Xiaoyan "Sean" Yang
 Dylan Liu :D
+Ethan Van Hoy
 Benny Chen
 Liam Maguire
 Johanna Varness
