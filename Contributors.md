@@ -51,5 +51,6 @@ Lewis Do xD
 Robert Fraker
 Brenna Jennings 😊
 Jacob Korobellis
-🕊 Israel Polasak 
+🕊 Israel Polasak
+David B 
 Anne Dang (:P)
