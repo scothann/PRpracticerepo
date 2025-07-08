@@ -9,6 +9,7 @@ Daniel Hernandez 👋
 Jeffers Baxter
 Gabe Happ-Shine
 Audrey Do
+Spencer Lan
 Michael  Jagielski ;P
 Samantha Berg
 Rafael Ayala
