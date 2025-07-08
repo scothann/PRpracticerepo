@@ -32,6 +32,7 @@ Denisa Marcisovska 🐈‍⬛
 Ramiro Covarrubias ༼つ◕_◕༽つ
 Skye Samuels :)
 Forrest Roudebush
+Elkana Tum
 Jackson Van Dyke 🏎️🏁
 Raiden Lazaro
 Noland Seigler
