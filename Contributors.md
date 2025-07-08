@@ -20,6 +20,7 @@ Ethan Van Hoy
 Benny Chen
 Liam Maguire
 Miguel Songco (0_0)
+Miguel Fernandez
 James "JIMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMmMMMMMMMMMMMMMMMMMMMMMMNY" Liu
 Brenna Wilson
 Torin McDonald
