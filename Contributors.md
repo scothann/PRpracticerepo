@@ -53,6 +53,5 @@ Brenna Jennings 😊
 Jacob Korobellis
 🕊 Israel Polasak
 Anne Dang (:P)
-
-Kiara J. Gomez ^\_\_^
+Kiara J. Gomez ^_^
 
