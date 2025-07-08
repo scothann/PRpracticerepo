@@ -1,9 +1,9 @@
 Hann Scott (•̀ᴗ•́)و
 Kevin Mai
 Scott Ladd (O.O)
-Sara Nettle (*^_^*)
+Sara Nettle (*^\_^*)
 Tyler Vincent
-Olivia ^_^
+Olivia ^*^
 Ahsun Tariq
 Daniel Hernandez 👋
 Jeffers Baxter
@@ -19,17 +19,17 @@ Charles Holz 💾
 Ethan Van Hoy
 Benny Chen
 Liam Maguire
-Miguel Songco (0_0)
+Miguel Songco (0\_0)
 James "JIMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMmMMMMMMMMMMMMMMMMMMMMMMNY" Liu
 Brenna Wilson
 Torin McDonald
 Isac Polasak (:P)
 Steve Rector
-Julie Bosley ¯\_(ツ)_/¯
+Julie Bosley ¯\_(ツ)*/¯
 Johanna Varness
 Elijah Davis
 Denisa Marcisovska 🐈‍⬛
-Ramiro Covarrubias ༼つ◕_◕༽つ
+Ramiro Covarrubias ༼つ◕\_◕༽つ
 Skye Samuels :)
 Forrest Roudebush
 Jackson Van Dyke 🏎️🏁
@@ -51,5 +51,7 @@ Lewis Do xD
 Robert Fraker
 Brenna Jennings 😊
 Jacob Korobellis
-🕊 Israel Polasak 
+🕊 Israel Polasak
 Anne Dang (:P)
+Kiara J. Gomez ^_^
+
