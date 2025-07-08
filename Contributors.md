@@ -10,6 +10,7 @@ Jeffers Baxter
 Gabe Happ-Shine
 Audrey Do
 Michael  Jagielski ;P
+Seojin Lee D:
 Samantha Berg
 Rafael Ayala
 Xiaoyan "Sean" Yang
