@@ -7,6 +7,7 @@ Olivia ^_^
 Ahsun Tariq
 Daniel Hernandez 👋
 Jeffers Baxter
+Michael Zandonella
 Gabe Happ-Shine
 Audrey Do
 Michael  Jagielski ;P
