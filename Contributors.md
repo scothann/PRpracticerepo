@@ -8,6 +8,7 @@ Ahsun Tariq
 Daniel Hernandez 👋
 Jeffers Baxter
 Gabe Happ-Shine
+Luke Ellister ( ͡° ͜ʖ ͡°)
 Audrey Do
 Michael  Jagielski ;P
 Samantha Berg
