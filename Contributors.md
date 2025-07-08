@@ -27,6 +27,7 @@ Isac Polasak (:P)
 Steve Rector
 Julie Bosley ¯\_(ツ)_/¯
 Johanna Varness
+Andrew Sullivan
 Elijah Davis
 Denisa Marcisovska 🐈‍⬛
 Ramiro Covarrubias ༼つ◕_◕༽つ
