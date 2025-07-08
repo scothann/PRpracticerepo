@@ -48,6 +48,7 @@ Matthew Menold
 Guy Cohen
 Ryo Kumakawa
 Lewis Do xD
+Cordell Settgast
 Robert Fraker
 Brenna Jennings 😊
 Jacob Korobellis
