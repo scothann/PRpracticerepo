@@ -39,6 +39,7 @@ Devon Thomas
 Raahi Vaidya
 Natalie Dettmer
 Zach Riser
+Arianna Joffrion
 Cooper Thompson
 Aaron Calderon :P
 Sam Chen (°▽°)/
