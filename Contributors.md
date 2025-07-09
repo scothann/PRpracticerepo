@@ -11,6 +11,7 @@ Gabe Happ-Shine
 Audrey Do
 Michael  Jagielski ;P
 Samantha Berg
+Destiny Bright :3
 Rafael Ayala
 Xiaoyan "Sean" Yang
 Brandon Vang
