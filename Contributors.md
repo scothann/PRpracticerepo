@@ -12,6 +12,7 @@ Audrey Do
 Michael  Jagielski ;P
 Samantha Berg
 Rafael Ayala
+Soham Das 🦫
 Xiaoyan "Sean" Yang
 Brandon Vang
 Dylan Liu :D
