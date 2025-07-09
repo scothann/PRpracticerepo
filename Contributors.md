@@ -21,6 +21,7 @@ Benny Chen
 Liam Maguire
 Miguel Songco (0_0)
 James "JIMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMmMMMMMMMMMMMMMMMMMMMMMMNY" Liu
+Cole Allen
 Brenna Wilson
 Torin McDonald
 Isac Polasak (:P)
