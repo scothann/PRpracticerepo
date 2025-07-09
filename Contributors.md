@@ -41,6 +41,7 @@ Natalie Dettmer
 Zach Riser
 Cooper Thompson
 Aaron Calderon :P
+Althea Davis :)
 Sam Chen (°▽°)/
 Lily Chen ᵕ̈
 Joseph Musgrove (^.^)>
