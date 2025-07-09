@@ -38,6 +38,7 @@ Noland Seigler
 Devon Thomas
 Raahi Vaidya
 Natalie Dettmer
+Giovanita Bell :)
 Zach Riser
 Cooper Thompson
 Aaron Calderon :P
