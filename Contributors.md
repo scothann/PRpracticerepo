@@ -26,6 +26,7 @@ Torin McDonald
 Isac Polasak (:P)
 Steve Rector
 Julie Bosley ¯\_(ツ)_/¯
+Tyler Renn
 Johanna Varness
 Elijah Davis
 Denisa Marcisovska 🐈‍⬛
