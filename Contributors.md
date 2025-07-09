@@ -49,6 +49,7 @@ Guy Cohen
 Ryo Kumakawa
 Lewis Do xD
 Robert Fraker
+Haerin Kim
 Brenna Jennings 😊
 Jacob Korobellis
 🕊 Israel Polasak 
