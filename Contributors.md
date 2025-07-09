@@ -18,6 +18,7 @@ Dylan Liu :D
 Charles Holz 💾
 Ethan Van Hoy
 Benny Chen
+Brett Sullivan :-)
 Liam Maguire
 Miguel Songco (0_0)
 James "JIMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMmMMMMMMMMMMMMMMMMMMMMMMNY" Liu
