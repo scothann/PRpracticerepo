@@ -30,6 +30,7 @@ Johanna Varness
 Elijah Davis
 Denisa Marcisovska 🐈‍⬛
 Ramiro Covarrubias ༼つ◕_◕༽つ
+Amanda One 🦦
 Skye Samuels :)
 Forrest Roudebush
 Jackson Van Dyke 🏎️🏁
@@ -51,5 +52,5 @@ Lewis Do xD
 Robert Fraker
 Brenna Jennings 😊
 Jacob Korobellis
-🕊 Israel Polasak 
+🕊 Israel Polasak
 Anne Dang (:P)
