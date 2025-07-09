@@ -9,6 +9,7 @@ Daniel Hernandez 👋
 Jeffers Baxter
 Gabe Happ-Shine
 Audrey Do
+Destiny Bright :3
 Michael  Jagielski ;P
 Samantha Berg
 Rafael Ayala
