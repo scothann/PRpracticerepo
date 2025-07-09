@@ -8,6 +8,7 @@ Ahsun Tariq
 Daniel Hernandez 👋
 Jeffers Baxter
 Gabe Happ-Shine
+Ryan Reed
 Audrey Do
 Michael  Jagielski ;P
 Samantha Berg
