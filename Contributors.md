@@ -43,6 +43,7 @@ Cooper Thompson
 Aaron Calderon :P
 Sam Chen (°▽°)/
 Lily Chen ᵕ̈
+America Pacheco 👩🏽‍💻
 Joseph Musgrove (^.^)>
 Matthew Menold
 Guy Cohen
