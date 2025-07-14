@@ -23,7 +23,8 @@ Charles Holz 💾
 Ethan Van Hoy
 Benny Chen
 Liam Maguire
-Miguel Songco (0\_0)
+Miguel Songco (0_0)
+Miguel Fernandez
 James "JIMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMmMMMMMMMMMMMMMMMMMMMMMMNY" Liu
 Brenna Wilson
 Torin McDonald
@@ -63,7 +64,7 @@ Cordell Settgast
 Robert Fraker
 Brandon Huynh :3
 Brenna Jennings 😊
-Jacob Korobellis
+Jacob Korobellis 
 🕊 Israel Polasak
 Gulper Gumus 🌸
 Samuel Donovan
