@@ -12,7 +12,8 @@ Michael Zandonella
 Gabe Happ-Shine
 Ira Senak
 Audrey Do
-Michael Jagielski ;P
+Spencer Lan
+Michael  Jagielski ;P
 Samantha Berg
 Rafael Ayala
 Xiaoyan "Sean" Yang
