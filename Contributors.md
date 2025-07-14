@@ -62,7 +62,8 @@ Robert Fraker
 Brandon Huynh :3
 Brenna Jennings 😊
 Jacob Korobellis
-🕊 Israel Polasak 
+🕊 Israel Polasak
+Samuel Donovan
 Jason Conover
 Alaaddin Alokby
 Anne Dang (:P)
