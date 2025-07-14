@@ -65,6 +65,7 @@ Cordell Settgast
 Robert Fraker
 Brandon Huynh :3
 Brenna Jennings 😊
+Ryan Spencer 龴ↀ◡ↀ龴
 Jacob Korobellis 
 🕊 Israel Polasak
 Gulper Gumus 🌸
