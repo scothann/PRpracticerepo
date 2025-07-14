@@ -45,6 +45,7 @@ Natalie Dettmer
 Andrew Wong 🎉
 Zach Riser
 Cooper Thompson
+Gavin Fifer
 Aaron Calderon :P
 Sam Chen (°▽°)/
 Lily Chen ᵕ̈
@@ -58,7 +59,7 @@ Cordell Settgast
 Robert Fraker
 Brenna Jennings 😊
 Jacob Korobellis
-🕊 Israel Polasak 
+🕊 Israel Polasak
 Jason Conover
 Alaaddin Alokby
 Anne Dang (:P)
