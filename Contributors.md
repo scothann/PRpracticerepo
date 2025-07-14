@@ -10,6 +10,7 @@ Daniel Hernandez 👋
 Jeffers Baxter
 Michael Zandonella
 Gabe Happ-Shine
+Luke Ellister ( ͡° ͜ʖ ͡°)
 Ira Senak
 Audrey Do
 Spencer Lan
