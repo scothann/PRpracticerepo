@@ -10,6 +10,7 @@ Daniel Hernandez 👋
 Jeffers Baxter
 Michael Zandonella
 Gabe Happ-Shine
+Ira Senak
 Audrey Do
 Michael Jagielski ;P
 Samantha Berg
