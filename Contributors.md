@@ -19,6 +19,7 @@ Michael  Jagielski ;P
 Seojin Lee D:
 Samantha Berg
 Rafael Ayala
+Soham Das 🦫
 Xiaoyan "Sean" Yang
 Brandon Vang
 Dylan Liu :D
