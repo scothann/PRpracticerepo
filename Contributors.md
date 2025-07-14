@@ -54,7 +54,8 @@ Cordell Settgast
 Robert Fraker
 Brenna Jennings 😊
 Jacob Korobellis
-🕊 Israel Polasak
+🕊 Israel Polasak 
+Alaaddin Alokby
 Anne Dang (:P)
 Madison Dowell 😄
 Kiara J. Gomez ^_^
