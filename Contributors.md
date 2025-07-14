@@ -30,6 +30,7 @@ Isac Polasak (:P)
 Steve Rector
 Julie Bosley ¯\_(ツ)*/¯
 Johanna Varness
+Andrew Sullivan
 Elijah Davis
 Ross Henderson (¬_¬)
 Denisa Marcisovska 🐈‍⬛
