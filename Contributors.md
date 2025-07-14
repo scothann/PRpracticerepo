@@ -31,6 +31,7 @@ Steve Rector
 Julie Bosley ¯\_(ツ)*/¯
 Johanna Varness
 Elijah Davis
+Ross Henderson (¬_¬)
 Denisa Marcisovska 🐈‍⬛
 Ramiro Covarrubias ༼つ◕\_◕༽つ
 Skye Samuels :)
