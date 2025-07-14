@@ -15,6 +15,7 @@ Ira Senak
 Audrey Do
 Spencer Lan
 Michael  Jagielski ;P
+Seojin Lee D:
 Samantha Berg
 Rafael Ayala
 Xiaoyan "Sean" Yang
