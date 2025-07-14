@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Derek R. Greene
 Kevin Mai
 Scott Ladd (O.O)
 Sara Nettle (_^\_^_)
@@ -54,3 +55,5 @@ Jacob Korobellis
 🕊 Israel Polasak
 Anne Dang (:P)
 Matthew Alviar ε=ε=ε=┌(;\*´Д`)ﾉ
+Nicholas Araj ⛳️
+Shi Qin
