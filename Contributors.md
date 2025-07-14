@@ -49,6 +49,7 @@ Raahi Vaidya
 Natalie Dettmer
 Andrew Wong 🎉
 Zach Riser
+Doug Hillyer
 Cooper Thompson
 Gavin Fifer
 Aaron Calderon :P
