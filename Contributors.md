@@ -62,6 +62,7 @@ Jacob Korobellis
 Jason Conover
 Alaaddin Alokby
 Anne Dang (:P)
+Patrick Kim (-_-')
 Nathan Do ( ˶o˶˶o˶)!!
 James Holmes
 Stephan Gonzales ")
