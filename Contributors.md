@@ -1,6 +1,7 @@
 Hann Scott (•̀ᴗ•́)و
 Derek R. Greene
 Kevin Mai
+Collin Fugate 🤯
 Scott Ladd (O.O)
 Sara Nettle (*^\_^*)
 Tyler Vincent
