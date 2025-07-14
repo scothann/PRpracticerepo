@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Derek R. Greene
 Kevin Mai
 Scott Ladd (O.O)
 Sara Nettle (*^\_^*)
@@ -9,7 +10,7 @@ Daniel Hernandez 👋
 Jeffers Baxter
 Gabe Happ-Shine
 Audrey Do
-Michael  Jagielski ;P
+Michael Jagielski ;P
 Samantha Berg
 Rafael Ayala
 Xiaoyan "Sean" Yang
@@ -48,10 +49,13 @@ Matthew Menold
 Guy Cohen
 Ryo Kumakawa
 Lewis Do xD
+Cordell Settgast
 Robert Fraker
 Brenna Jennings 😊
 Jacob Korobellis
 🕊 Israel Polasak
 Anne Dang (:P)
 Kiara J. Gomez ^_^
-
+Matthew Alviar ε=ε=ε=┌(;\*´Д`)ﾉ
+Nicholas Araj ⛳️
+Shi Qin
