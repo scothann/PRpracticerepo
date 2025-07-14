@@ -59,9 +59,10 @@ Ryo Kumakawa
 Lewis Do xD
 Cordell Settgast
 Robert Fraker
+Brandon Huynh :3
 Brenna Jennings 😊
 Jacob Korobellis
-🕊 Israel Polasak
+🕊 Israel Polasak 
 Jason Conover
 Alaaddin Alokby
 Anne Dang (:P)
