@@ -64,6 +64,7 @@ Jacob Korobellis
 Jason Conover
 Alaaddin Alokby
 Anne Dang (:P)
+Richard Parr
 Shubhangi Pandey
 gnubufferoverflows
 Serg Tsogtbaatar
