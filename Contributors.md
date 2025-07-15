@@ -14,6 +14,7 @@ Gabe Happ-Shine
 Luke Ellister ( ͡° ͜ʖ ͡°)
 Ira Senak
 Audrey Do
+Destiny Bright :3
 Spencer Lan
 Michael  Jagielski ;P
 Seojin Lee D:
