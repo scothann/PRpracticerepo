@@ -32,6 +32,7 @@ Liam Maguire
 Miguel Songco (0_0)
 Miguel Fernandez
 James "JIMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMmMMMMMMMMMMMMMMMMMMMMMMNY" Liu
+Cole Allen
 Brenna Wilson
 Torin McDonald
 Isac Polasak (:P)
