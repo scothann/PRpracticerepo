@@ -69,6 +69,7 @@ Ryo Kumakawa
 Lewis Do xD
 Cordell Settgast
 Robert Fraker
+Haerin Kim
 Brandon Huynh :3
 Brenna Jennings 😊
 David B 
