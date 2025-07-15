@@ -37,7 +37,8 @@ Brenna Wilson
 Torin McDonald
 Isac Polasak (:P)
 Steve Rector
-Julie Bosley ¯\_(ツ)*/¯
+Julie Bosley ¯\_(ツ)_/¯
+Tyler Renn
 Johanna Varness
 Andrew Sullivan
 Elijah Davis
