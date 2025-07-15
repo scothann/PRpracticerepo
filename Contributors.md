@@ -82,6 +82,7 @@ Samuel Donovan
 Jason Conover
 Alaaddin Alokby
 Anne Dang (:P)
+Connor Friedman
 Jacob Ruddell ඞ
 Varun Bhat
 Owen Warnack (=ФェФ=)
