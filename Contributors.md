@@ -12,6 +12,7 @@ Daniel Hernandez 👋
 Jeffers Baxter
 Michael Zandonella
 Gabe Happ-Shine
+Ryan Reed
 Elizabeth Woodward 👍
 Luke Ellister ( ͡° ͜ʖ ͡°)
 Ira Senak
