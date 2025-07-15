@@ -59,6 +59,7 @@ Natalie Dettmer
 Giovanita Bell :)
 Andrew Wong 🎉
 Zach Riser
+Arianna Joffrion
 Doug Hillyer
 Cooper Thompson
 Gavin Fifer
