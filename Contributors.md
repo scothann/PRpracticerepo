@@ -65,6 +65,7 @@ Doug Hillyer
 Cooper Thompson
 Gavin Fifer
 Aaron Calderon :P
+Althea Davis :)
 Sam Chen (°▽°)/
 Lily Chen ᵕ̈
 Joseph Musgrove (^.^)>
