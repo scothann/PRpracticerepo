@@ -30,7 +30,7 @@ Charles Holz 💾
 Ethan Van Hoy
 Benny Chen
 Liam Maguire
-Miguel Songco (0_0)
+Miguel Songco (0\_0)
 Miguel Fernandez
 James "JIMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMmMMMMMMMMMMMMMMMMMMMMMMNY" Liu
 Cole Allen
@@ -67,6 +67,7 @@ Gavin Fifer
 Aaron Calderon :P
 Althea Davis :)
 Sam Chen (°▽°)/
+Catherine Kaye DelaChica
 Lily Chen ᵕ̈
 Joseph Musgrove (^.^)>
 Jacob Pham ໒( ◔ ω ◔ )७ 🐕‍🦺 WOOF WOOF!
