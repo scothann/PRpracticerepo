@@ -84,6 +84,7 @@ Samuel Donovan
 Jason Conover
 Alaaddin Alokby
 Anne Dang (:P)
+Aidan Lusk
 Devin Macomb ~~~('u')~~~
 Alex P. 🐣
 Zhengye Huang
