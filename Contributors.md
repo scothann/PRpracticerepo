@@ -42,7 +42,8 @@ Andrew Sullivan
 Elijah Davis
 Ross Henderson (¬_¬)
 Denisa Marcisovska 🐈‍⬛
-Ramiro Covarrubias ༼つ◕\_◕༽つ
+Ramiro Covarrubias ༼つ◕_◕༽つ
+Amanda One 🦦
 Skye Samuels :)
 Forrest Roudebush
 Elkana Tum
