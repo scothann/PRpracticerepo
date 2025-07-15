@@ -51,6 +51,7 @@ Noland Seigler
 Devon Thomas
 Raahi Vaidya
 Natalie Dettmer
+Giovanita Bell :)
 Andrew Wong 🎉
 Zach Riser
 Doug Hillyer
