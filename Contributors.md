@@ -44,6 +44,7 @@ Steve Rector
 Julie Bosley ¯\_(ツ)_/¯
 Tyler Renn
 Johanna Varness
+Sean Vincent Cohan (╯°□°）╯ ︵ ┻━┻
 Andrew Sullivan
 Elijah Davis
 Ross Henderson (¬_¬)
