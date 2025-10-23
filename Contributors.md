@@ -9,6 +9,7 @@ Leslie Kong (.ᴖ.)
 Walter Downing :P
 Diaz-Diaz ( ╹ -╹)?
 Richard Phan :)
+Tyler Eto
 Madelyn Lazar (*u*)
 Ersan Ustundag
 Ji Mun
