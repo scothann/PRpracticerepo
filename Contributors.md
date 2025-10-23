@@ -3,6 +3,7 @@ Austin Holcomb
 Josquin Larsen O_o
 Matthew Holmstrom
 Ian Truong 😜
+Tess Ellis 🥳
 Ben Pierce :)
 Brian Mulanda (BM)
 Tomomi Watanabe Hudspath (◕‿◕✿)
