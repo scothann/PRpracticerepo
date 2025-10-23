@@ -6,6 +6,7 @@ Ian Truong 😜
 Lex Lei
 Ben Pierce :)
 Brian Mulanda (BM)
+Brooke Satterfield
 Ethan Van Hao
 Adriana Arroyo 🌴
 Tomomi Watanabe Hudspath (◕‿◕✿)
