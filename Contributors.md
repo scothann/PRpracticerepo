@@ -10,6 +10,7 @@ Leslie Kong (.ᴖ.)
 Walter Downing :P
 Diaz-Diaz ( ╹ -╹)?
 Richard Phan :)
+John Klucinec
 Dan Hambor ( •⌄• )
 Tyler Eto
 Madelyn Lazar (*u*)
