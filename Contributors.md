@@ -13,6 +13,7 @@ Leslie Kong (.ᴖ.)
 Walter Downing :P
 Diaz-Diaz ( ╹ -╹)?
 Richard Phan :)
+Humberto Pineda ಠ_ಠ
 Mitchell Davis |(• ◡•)|(❍ᴥ❍
 John Klucinec
 Dan Hambor ( •⌄• )
