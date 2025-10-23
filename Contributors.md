@@ -11,6 +11,7 @@ Leslie Kong (.ᴖ.)
 Walter Downing :P
 Diaz-Diaz ( ╹ -╹)?
 Richard Phan :)
+Mitchell Davis |(• ◡•)|(❍ᴥ❍
 John Klucinec
 Dan Hambor ( •⌄• )
 Tyler Eto
