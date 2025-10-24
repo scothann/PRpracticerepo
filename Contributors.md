@@ -13,6 +13,7 @@ Tomomi Watanabe Hudspath (◕‿◕✿)
 Leslie Kong (.ᴖ.)
 Walter Downing :P
 Diaz-Diaz ( ╹ -╹)?
+Jedidiah Backus :)
 Richard Phan :)
 Benjamin Li 🏄 
 Ben Kahl <*_*>
