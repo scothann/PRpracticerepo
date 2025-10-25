@@ -8,6 +8,7 @@ Ben Pierce :)
 Brian Mulanda (BM)
 Brooke Satterfield
 Ethan Van Hao
+Michael Akins
 Adriana Arroyo 🌴
 Tomomi Watanabe Hudspath (◕‿◕✿)
 Leslie Kong (.ᴖ.)
