@@ -11,6 +11,7 @@ Ethan Van Hao
 Adriana Arroyo 🌴
 Tomomi Watanabe Hudspath (◕‿◕✿)
 Leslie Kong (.ᴖ.)
+John Lopez 🌩️
 Walter Downing :P
 Diaz-Diaz ( ╹ -╹)?
 Richard Phan :)
