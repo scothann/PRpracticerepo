@@ -1,6 +1,6 @@
 Hann Scott (•̀ᴗ•́)و
 Austin Holcomb
-Josquin Larsen O_o
+Josquin Larsen O\_o
 Matthew Holmstrom
 Ian Truong 😜
 Lex Lei
@@ -14,10 +14,12 @@ Leslie Kong (.ᴖ.)
 Walter Downing :P
 Diaz-Diaz ( ╹ -╹)?
 Richard Phan :)
-Benjamin Li 🏄 
-Ben Kahl <*_*>
+Benjamin Li 🏄
+Ashton Tilton XD
+
+Ben Kahl <*\_*>
 Justice Oneel
-Humberto Pineda ಠ_ಠ
+Humberto Pineda ಠ\_ಠ
 Mitchell Davis |(• ◡•)|(❍ᴥ❍
 John Klucinec
 Dan Hambor ( •⌄• )
@@ -25,3 +27,4 @@ Tyler Eto
 Madelyn Lazar (*u*)
 Ersan Ustundag
 Ji Mun
+
