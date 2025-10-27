@@ -15,6 +15,7 @@ Leslie Kong (.ᴖ.)
 Walter Downing :P
 Diaz-Diaz ( ╹ -╹)?
 Richard Phan :)
+Kevin Penate \(^o^)/
 Lam Phung 🍭 
 Benjamin Li 🏄 
 Ben Kahl <*_*>
