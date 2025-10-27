@@ -1,5 +1,6 @@
 Hann Scott (•̀ᴗ•́)و
 Austin Holcomb
+Rajvi Rajput (•‿•)
 Josquin Larsen O_o
 Matthew Holmstrom
 Ian Truong 😜
