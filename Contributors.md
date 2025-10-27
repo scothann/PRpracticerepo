@@ -1,7 +1,7 @@
 Hann Scott (•̀ᴗ•́)و
 Austin Holcomb
 Rajvi Rajput (•‿•)
-Josquin Larsen O_o
+Josquin Larsen O\_o
 Matthew Holmstrom
 Ian Truong 😜
 Ariel 😉 Lobo
@@ -19,12 +19,14 @@ Diaz-Diaz ( ╹ -╹)?
 Cameron Kell (╯°□°）╯︵ ┻━┻
 Richard Phan :)
 Derik Schaefer
-Kevin Penate \(^o^)/
-Lam Phung 🍭 
-Benjamin Li 🏄 
-Ben Kahl <*_*>
+
+Alejandro Rodriguez Varona
+Kevin Penate (^o^)/
+Lam Phung 🍭
+Benjamin Li 🏄
+Ben Kahl <*\_*>
 Justice Oneel
-Humberto Pineda ಠ_ಠ
+Humberto Pineda ಠ\_ಠ
 Mitchell Davis |(• ◡•)|(❍ᴥ❍
 John Klucinec
 Dan Hambor ( •⌄• )
@@ -33,3 +35,4 @@ Madelyn Lazar (*u*)
 Ersan Ustundag
 Ji Mun
 Adam Solomon
+
