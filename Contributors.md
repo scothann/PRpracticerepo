@@ -18,6 +18,7 @@ Walter Downing :P
 Diaz-Diaz ( ╹ -╹)?
 Cameron Kell (╯°□°）╯︵ ┻━┻
 Richard Phan :)
+Derik Schaefer
 Kevin Penate \(^o^)/
 Lam Phung 🍭 
 Benjamin Li 🏄 
