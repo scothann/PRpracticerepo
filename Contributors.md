@@ -3,6 +3,7 @@ Austin Holcomb
 Josquin Larsen O_o
 Matthew Holmstrom
 Ian Truong 😜
+Max Taylor >.<
 Lex Lei
 Ben Pierce :)
 Brian Mulanda (BM)
