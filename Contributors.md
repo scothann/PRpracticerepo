@@ -12,6 +12,7 @@ Brian Mulanda (BM)
 Brooke Satterfield
 Ethan Van Hao
 Adriana Arroyo 🌴
+Johnathan Harrison
 Tomomi Watanabe Hudspath (◕‿◕✿)
 Leslie Kong (.ᴖ.)
 Walter Downing :P
