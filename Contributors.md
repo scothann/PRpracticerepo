@@ -10,6 +10,7 @@ Lex Lei
 Ben Pierce :)
 Brian Mulanda (BM)
 Brooke Satterfield
+Anthony Amador (O_o)
 Ethan Van Hao
 Adriana Arroyo 🌴
 Tomomi Watanabe Hudspath (◕‿◕✿)
@@ -20,7 +21,7 @@ Cameron Kell (╯°□°）╯︵ ┻━┻
 Richard Phan :)
 Derik Schaefer
 Kevin Penate \(^o^)/
-Lam Phung 🍭 
+Lam Phung 🍭
 Benjamin Li 🏄 
 Ben Kahl <*_*>
 Justice Oneel
