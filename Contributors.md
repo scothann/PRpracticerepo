@@ -21,7 +21,7 @@ Cameron Kell (╯°□°）╯︵ ┻━┻
 Richard Phan :)
 Derik Schaefer
 Kevin Penate \(^o^)/
-Lam Phung 🍭
+Lam Phung 🍭 
 Benjamin Li 🏄 
 Ben Kahl <*_*>
 Justice Oneel
