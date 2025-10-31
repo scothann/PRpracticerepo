@@ -10,6 +10,7 @@ Lex Lei
 Ben Pierce :)
 Brian Mulanda (BM)
 Brooke Satterfield
+Teresa Nguyen
 Ethan Van Hao
 Adriana Arroyo 🌴
 Tomomi Watanabe Hudspath (◕‿◕✿)
