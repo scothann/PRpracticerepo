@@ -29,6 +29,7 @@ Humberto Pineda ಠ_ಠ
 Mitchell Davis |(• ◡•)|(❍ᴥ❍
 John Klucinec
 Dan Hambor ( •⌄• )
+Abel Sanchez :p
 Tyler Eto
 Madelyn Lazar (*u*)
 Ersan Ustundag
