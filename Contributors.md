@@ -35,6 +35,7 @@ Tyler Eto
 Madelyn Lazar (*u*)
 Ersan Ustundag
 Ji Mun
+Jade Zelaya
 Brandon Nguyen 🐒
 Fernando Darian Mata (╯'□')╯︵ ┻━┻
 Adam Solomon
