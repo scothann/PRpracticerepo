@@ -14,6 +14,7 @@ Brooke Satterfield
 Ethan Van Hao
 Adriana Arroyo 🌴
 Tomomi Watanabe Hudspath (◕‿◕✿)
+John Biersdorf
 Leslie Kong (.ᴖ.)
 Walter Downing :P
 Diaz-Diaz ( ╹ -╹)?
