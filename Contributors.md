@@ -35,6 +35,7 @@ Tyler Eto
 Madelyn Lazar (*u*)
 Ersan Ustundag
 Ji Mun
+Faizan Karim
 Julia Feldhousen :)
 Bradley Tyler 👋
 Jade Zelaya
