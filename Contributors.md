@@ -43,6 +43,7 @@ Madelyn Lazar (*u*)
 Ersan Ustundag
 Annabel Wang!
 Ji Mun
+Sean Harrington (;-;)
 Skyler Bass
 Elvis Ardon ¯\_(ツ)_/¯
 Quinn Roth
