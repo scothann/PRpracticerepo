@@ -43,6 +43,7 @@ Madelyn Lazar (*u*)
 Ersan Ustundag
 Annabel Wang!
 Ji Mun
+Elvis Ardon ¯\_(ツ)_/¯
 Quinn Roth
 Ajay Sandhar
 Owen Summersett '-'
