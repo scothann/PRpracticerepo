@@ -19,6 +19,7 @@ Tomomi Watanabe Hudspath (◕‿◕✿)
 Jennifer Phillips ( XD )
 John Biersdorf
 Leslie Kong (.ᴖ.)
+John Lopez 🌩️
 Charles Davis
 Walter Downing :P
 Diaz-Diaz ( ╹ -╹)?
