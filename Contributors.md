@@ -42,6 +42,7 @@ Madelyn Lazar (*u*)
 Ersan Ustundag
 Annabel Wang!
 Ji Mun
+Quinn Roth
 Ajay Sandhar
 Owen Summersett '-'
 SYK Q(''Q)
