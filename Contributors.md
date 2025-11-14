@@ -13,6 +13,7 @@ Brian Mulanda (BM)
 Brooke Satterfield
 Teresa Nguyen
 Ethan Van Hao
+Michael Akins
 Adriana Arroyo 🌴
 Tomomi Watanabe Hudspath (◕‿◕✿)
 Jennifer Phillips ( XD )
