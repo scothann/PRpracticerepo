@@ -20,6 +20,7 @@ Leslie Kong (.ᴖ.)
 Charles Davis
 Walter Downing :P
 Diaz-Diaz ( ╹ -╹)?
+Jedidiah Backus :)
 Cameron Kell (╯°□°）╯︵ ┻━┻
 Richard Phan :)
 Derik Schaefer
