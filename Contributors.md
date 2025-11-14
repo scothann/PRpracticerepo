@@ -37,6 +37,7 @@ Tyler Eto
 Madelyn Lazar (*u*)
 Ersan Ustundag
 Ji Mun
+SYK Q(''Q)
 Katalina Nakoa 🥸
 Faizan Karim
 Julia Feldhousen :)
