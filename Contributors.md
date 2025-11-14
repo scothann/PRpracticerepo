@@ -38,6 +38,7 @@ Abel Sanchez :p
 Tyler Eto
 Madelyn Lazar (*u*)
 Ersan Ustundag
+Annabel Wang!
 Ji Mun
 SYK Q(''Q)
 Katalina Nakoa 🥸
