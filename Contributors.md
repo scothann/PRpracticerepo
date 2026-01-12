@@ -45,6 +45,7 @@ Madelyn Lazar (*u*)
 Ersan Ustundag
 Annabel Wang!
 Ji Mun
+Joseph Sepe
 Deo Sung :/
 Sean Harrington (;-;)
 Skyler Bass
