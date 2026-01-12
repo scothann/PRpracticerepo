@@ -12,6 +12,7 @@ Lex Lei
 Ben Pierce :)
 Brian Mulanda (BM)
 Brooke Satterfield
+Anthony Amador (O_o)
 Teresa Nguyen
 Ethan Van Hao
 Michael Akins
