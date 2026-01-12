@@ -16,6 +16,7 @@ Teresa Nguyen
 Ethan Van Hao
 Michael Akins
 Adriana Arroyo 🌴
+Johnathan Harrison
 Tomomi Watanabe Hudspath (◕‿◕✿)
 Jennifer Phillips ( XD )
 John Biersdorf
