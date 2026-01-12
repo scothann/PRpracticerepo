@@ -45,6 +45,7 @@ Madelyn Lazar (*u*)
 Ersan Ustundag
 Annabel Wang!
 Ji Mun
+Deo Sung :/
 Sean Harrington (;-;)
 Skyler Bass
 Elvis Ardon ¯\_(ツ)_/¯
