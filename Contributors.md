@@ -45,6 +45,7 @@ Madelyn Lazar (*u*)
 Ersan Ustundag
 Annabel Wang!
 Ji Mun
+Sebastian Torresola 🎹
 Bhaveesh Beemireddy
 Amin Alavi
 Joseph Sepe
