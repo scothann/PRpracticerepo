@@ -2,7 +2,7 @@ Hann Scott (•̀ᴗ•́)و
 OW 🍜
 Austin Holcomb
 Rajvi Rajput (•‿•)
-Josquin Larsen O_o
+Josquin Larsen O\_o
 Matthew Holmstrom
 Ian Truong 😜
 Tess Ellis 🥳
@@ -28,6 +28,13 @@ Jedidiah Backus :)
 Cameron Kell (╯°□°）╯︵ ┻━┻
 Richard Phan :)
 Derik Schaefer
+Alejandro Rodriguez Varona
+Kevin Penate (^o^)/
+Lam Phung 🍭
+Benjamin Li 🏄
+Ben Kahl <*\_*>
+Justice Oneel
+Humberto Pineda ಠ\_ಠ
 Kevin Penate \(^o^)/
 Lam Phung 🍭 
 Benjamin Li 🏄 
