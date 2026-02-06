@@ -3,3 +3,4 @@ Tony Nguyen
 Fiona 🦋 Victoria
 KV
 Mithun Karthikeyan 👋
+Troy Rice
