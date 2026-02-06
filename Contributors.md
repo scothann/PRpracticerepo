@@ -8,6 +8,7 @@ Ahmed Thalij
 Alex Walsh :)
 Mithun Karthikeyan 👋
 Justin 🪂 Holley  
+Caleb Cardin ¯\\_(ツ)_/¯
 Colin Sonnenberg ツ
 Zack Schaffter 🥪
 Lilith Abrahamson 🐷
