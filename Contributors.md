@@ -7,7 +7,8 @@ Reid Singleton ~~~~~
 Ahmed Thalij
 Alex Walsh :)
 Mithun Karthikeyan 👋
-Justin 🪂 Holley  
+Justin 🪂 Holley 
+Gabriel-Jean Bertrand :/ 
 Colin Sonnenberg ツ
 Zack Schaffter 🥪
 Lilith Abrahamson 🐷
