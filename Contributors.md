@@ -6,6 +6,7 @@ KV
 Reid Singleton ~~~~~
 Ahmed Thalij
 Alex Walsh :)
+Felipe Osuna 🏗️
 Mithun Karthikeyan 👋
 Justin 🪂 Holley  
 Colin Sonnenberg ツ
