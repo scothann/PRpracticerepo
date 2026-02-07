@@ -1,5 +1,6 @@
 Hann Scott (•̀ᴗ•́)و
 Tony Nguyen
+Quan Doan
 Fiona 🦋 Victoria
 Takafumi Suzuki(^-^)
 KV
