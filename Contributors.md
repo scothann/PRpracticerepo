@@ -2,6 +2,7 @@ Hann Scott (•̀ᴗ•́)و
 Tony Nguyen
 Fiona 🦋 Victoria
 Takafumi Suzuki(^-^)
+Kiana Shim
 KV
 Reid Singleton ~~~~~
 Ahmed Thalij
