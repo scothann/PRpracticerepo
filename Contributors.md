@@ -9,6 +9,7 @@ Alex Walsh :)
 Mithun Karthikeyan 👋
 Justin 🪂 Holley  
 Colin Sonnenberg ツ
+Ethan Pilskalns (❍ᴥ❍ʋ)
 Zack Schaffter 🥪
 Lilith Abrahamson 🐷
 William Erickson ↯
