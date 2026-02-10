@@ -1,5 +1,6 @@
 Hann Scott (•̀ᴗ•́)و
 Tony Nguyen
+Finlay Christ 🧗
 Thien Pham
 Fiona 🦋 Victoria
 Takafumi Suzuki(^-^)
