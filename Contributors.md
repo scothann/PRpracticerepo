@@ -17,6 +17,7 @@ Ahmed Thalij
 Tom Eaton :^)
 Alex Walsh :)
 Mithun Karthikeyan 👋
+Corrie Stoddard
 Henry Koster ❄️
 Meredith 😎 Baker
 Gabriel-Jean Bertrand :/ 
