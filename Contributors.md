@@ -9,6 +9,7 @@ Paula Tica
 Tyler Krueger
 Takafumi Suzuki(^-^)
 KV
+Chanda Decker ٩(^‿^)۶
 Christian Boyd
 Guibely De Aguinaga😊 
 Ryan Seang 
