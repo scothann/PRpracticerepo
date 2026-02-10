@@ -13,6 +13,7 @@ Sabri Abounozha ^_^
 Jason Tang
 Reid Singleton ~~~~~
 Ahmed Thalij
+Tom Eaton :^)
 Alex Walsh :)
 Mithun Karthikeyan 👋
 ERiC Kwak
