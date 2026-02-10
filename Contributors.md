@@ -3,6 +3,7 @@ Tony Nguyen
 Fiona 🦋 Victoria
 Takafumi Suzuki(^-^)
 KV
+Thomas Rieder
 Sabri Abounozha ^_^
 Jason Tang
 Reid Singleton ~~~~~
