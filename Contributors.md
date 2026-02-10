@@ -16,6 +16,7 @@ Ahmed Thalij
 Tom Eaton :^)
 Alex Walsh :)
 Mithun Karthikeyan 👋
+Gabriel-Jean Bertrand :/ 
 ERiC Kwak
 Annmarie Geiger o(˶^▾^˶ )o
 Justin 🪂 Holley  
