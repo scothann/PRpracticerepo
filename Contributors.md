@@ -1,13 +1,23 @@
 Hann Scott (•̀ᴗ•́)و
 Tony Nguyen
+Chrystyan Pulido
+Finlay Christ 🧗
+Thien Pham
 Fiona 🦋 Victoria
+Tyler Krueger
 Takafumi Suzuki(^-^)
 KV
+Ryan Seang 
+Thomas Rieder
+Sabri Abounozha ^_^
+Jason Tang
 Reid Singleton ~~~~~
 Ahmed Thalij
 Tom Eaton :^)
 Alex Walsh :)
 Mithun Karthikeyan 👋
+ERiC Kwak
+Annmarie Geiger o(˶^▾^˶ )o
 Justin 🪂 Holley  
 Colin Sonnenberg ツ
 Zack Schaffter 🥪
