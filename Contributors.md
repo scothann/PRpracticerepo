@@ -4,6 +4,7 @@ Chrystyan Pulido
 Finlay Christ 🧗
 Thien Pham
 Fiona 🦋 Victoria
+Tyler Krueger
 Takafumi Suzuki(^-^)
 KV
 Ryan Seang 
