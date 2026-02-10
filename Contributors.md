@@ -9,6 +9,7 @@ Paula Tica
 Tyler Krueger
 Takafumi Suzuki(^-^)
 KV
+John Weathers
 Jacob Frasieur 🍅
 Chanda Decker ٩(^‿^)۶
 Christian Boyd
