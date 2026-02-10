@@ -8,6 +8,7 @@ Paula Tica
 Tyler Krueger
 Takafumi Suzuki(^-^)
 KV
+Christian Boyd
 Guibely De Aguinaga😊 
 Ryan Seang 
 Thomas Rieder
