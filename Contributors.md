@@ -4,6 +4,7 @@ Chrystyan Pulido
 Finlay Christ 🧗
 Thien Pham
 Fiona 🦋 Victoria
+Jamie Bartels 🍮
 Paula Tica
 Tyler Krueger
 Takafumi Suzuki(^-^)
