@@ -15,6 +15,7 @@ Paula Tica
 Tyler Krueger
 Takafumi Suzuki(^-^)
 KV
+Austin Labador
 Alex Wiedenhoeft
 Luca Tudose
 Howard Baik
