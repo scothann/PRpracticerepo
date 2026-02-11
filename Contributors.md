@@ -4,6 +4,7 @@ Chrystyan Pulido
 Finlay Christ 🧗
 Thien Pham
 Fiona 🦋 Victoria
+Logan Sailer U・ﻌ・U
 Jamie Bartels 🍮
 Paula Tica
 Tyler Krueger
