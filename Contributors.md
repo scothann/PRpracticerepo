@@ -4,6 +4,7 @@ Chrystyan Pulido
 Finlay Christ 🧗
 Thien Pham
 Fiona 🦋 Victoria
+Yigit Kolat 🎹
 Shaheen Pedram ¯\_(ツ)_/¯
 David Rico 🦞
 Logan Sailer U・ﻌ・U
