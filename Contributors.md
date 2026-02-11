@@ -10,6 +10,7 @@ Paula Tica
 Tyler Krueger
 Takafumi Suzuki(^-^)
 KV
+Kyle Perez
 Eric 🍰 So 
 Bang Hoang
 Krystal Lu ≽^•⩊•^≼
