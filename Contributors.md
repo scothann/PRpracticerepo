@@ -38,6 +38,7 @@ Tom Eaton :^)
 Michael Caballero ><(((º>
 Alex Walsh :)
 Mithun Karthikeyan 👋
+Troy Rice
 Darrin Miller :)
 Vincewa Tran 🫡
 Yoonseong Shin <3
