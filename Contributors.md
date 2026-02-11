@@ -1,56 +1,54 @@
-Hann Scott (•̀ᴗ•́)و
-Kevin Mai
-Scott Ladd (O.O)
-Sara Nettle (*^_^*)
-Tyler Vincent
-Olivia ^_^
-Ahsun Tariq
-Daniel Hernandez 👋
-Jeffers Baxter
-Gabe Happ-Shine
-Audrey Do
-Michael  Jagielski ;P
-Samantha Berg
-Rafael Ayala
-Xiaoyan "Sean" Yang
-Brandon Vang
-Dylan Liu :D
-Charles Holz 💾
-Ethan Van Hoy
+
+Tony Nguyen
+Chrystyan Pulido
+Finlay Christ 🧗
+Thien Pham
+Fiona 🦋 Victoria
+Shaheen Pedram ¯\_(ツ)_/¯
+David Rico 🦞
+Logan Sailer U・ﻌ・U
+Jamie Bartels 🍮
+Paula Tica
+Tyler Krueger
+Takafumi Suzuki(^-^)
+KV
+Luca Tudose
+Howard Baik
+Kyle Perez
+Eric 🍰 So 
+Bang Hoang
+Krystal Lu ≽^•⩊•^≼
+John Weathers
+Jacob Frasieur 🍅
+Chanda Decker ٩(^‿^)۶
+Christian Boyd
+Guibely De Aguinaga😊 
+Ryan Seang 
+Thomas Rieder
+Sabri Abounozha ^_^
+Jason Tang
+Reid Singleton ~~~~~
+Ahmed Thalij
+Tom Eaton :^)
 Michael Caballero ><(((º>
-Benny Chen
-Liam Maguire
-Miguel Songco (0_0)
-James "JIMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMmMMMMMMMMMMMMMMMMMMMMMMNY" Liu
-Brenna Wilson
-Torin McDonald
-Isac Polasak (:P)
-Steve Rector
-Julie Bosley ¯\_(ツ)_/¯
-Johanna Varness
-Elijah Davis
-Denisa Marcisovska 🐈‍⬛
-Ramiro Covarrubias ༼つ◕_◕༽つ
-Skye Samuels :)
-Forrest Roudebush
-Jackson Van Dyke 🏎️🏁
-Raiden Lazaro
-Noland Seigler
-Devon Thomas
-Raahi Vaidya
-Natalie Dettmer
-Zach Riser
-Cooper Thompson
-Aaron Calderon :P
-Sam Chen (°▽°)/
-Lily Chen ᵕ̈
-Joseph Musgrove (^.^)>
-Matthew Menold
-Guy Cohen
-Ryo Kumakawa
-Lewis Do xD
-Robert Fraker
-Brenna Jennings 😊
-Jacob Korobellis
-🕊 Israel Polasak 
-Anne Dang (:P)
+Alex Walsh :)
+Mithun Karthikeyan 👋
+Darrin Miller :)
+Vincewa Tran 🫡
+Yoonseong Shin <3
+Syed Refaie (ToT)
+Dristi Patel🌺
+Dylan 😎 Nguyen
+Corrie Stoddard
+Henry Koster ❄️
+Meredith 😎 Baker
+Gabriel-Jean Bertrand :/ 
+ERiC Kwak
+Annmarie Geiger o(˶^▾^˶ )o
+Justin 🪂 Holley  
+Colin Sonnenberg ツ
+Zack Schaffter 🥪
+Lilith Abrahamson 🐷
+William Erickson ↯
+Angela Koval
+Juan Mugica ._.)/\(._.
