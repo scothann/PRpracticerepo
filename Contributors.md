@@ -12,6 +12,7 @@ Paula Tica
 Tyler Krueger
 Takafumi Suzuki(^-^)
 KV
+Luca Tudose
 Howard Baik
 Kyle Perez
 Eric 🍰 So 
