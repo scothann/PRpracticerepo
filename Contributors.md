@@ -8,6 +8,7 @@ Jamie Bartels 🍮
 Paula Tica
 Tyler Krueger
 Takafumi Suzuki(^-^)
+Kiana Shim
 KV
 John Weathers
 Jacob Frasieur 🍅
