@@ -4,6 +4,7 @@ Chrystyan Pulido
 Finlay Christ 🧗
 Thien Pham
 Fiona 🦋 Victoria
+Jiayi Zhou
 Luis Pringle :^D~
 Yigit Kolat 🎹
 Shaheen Pedram ¯\_(ツ)_/¯
