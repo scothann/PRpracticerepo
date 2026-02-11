@@ -55,6 +55,7 @@ Meredith 😎 Baker
 Gabriel-Jean Bertrand :/ 
 ERiC Kwak
 Annmarie Geiger o(˶^▾^˶ )o
+Talat Ali 😄
 Justin 🪂 Holley  
 Colin Sonnenberg ツ
 Zack Schaffter 🥪
