@@ -35,6 +35,7 @@ Thomas Rieder
 Sabri Abounozha ^_^
 Jason Tang
 Reid Singleton ~~~~~
+Kyle Davis :-)
 Ahmed Thalij
 Tom Eaton :^)
 Michael Caballero ><(((º>
