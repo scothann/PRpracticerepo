@@ -60,5 +60,6 @@ Colin Sonnenberg ツ
 Zack Schaffter 🥪
 Lilith Abrahamson 🐷
 William Erickson ↯
+Jason Stephens 🤘
 Angela Koval
 Juan Mugica ._.)/\(._.
