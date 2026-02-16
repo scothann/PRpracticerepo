@@ -61,5 +61,6 @@ Zack Schaffter 🥪
 Lilith Abrahamson 🐷
 William Erickson ↯
 Angela Koval
+Zachary Corio
 Yigit Onuk
 Juan Mugica ._.)/\(._.
