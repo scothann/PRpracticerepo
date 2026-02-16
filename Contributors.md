@@ -62,6 +62,7 @@ Lilith Abrahamson 🐷
 William Erickson ↯
 Hayley Truong 🌸
 Angela Koval
+Isaac Choi
 Shawn McManus 🐕
 Seth Vankleek
 Zachary Corio
