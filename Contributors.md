@@ -64,6 +64,7 @@ William Erickson ↯
 Jason Stephens 🤘
 Hayley Truong 🌸
 Angela Koval
+Max (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧
 Cohen Velazquez
 Isaac Choi
 Shawn McManus 🐕
