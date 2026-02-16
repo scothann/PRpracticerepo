@@ -63,6 +63,7 @@ William Erickson ↯
 Jason Stephens 🤘
 Hayley Truong 🌸
 Angela Koval
+Cohen Velazquez
 Isaac Choi
 Shawn McManus 🐕
 Seth Vankleek
