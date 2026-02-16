@@ -69,6 +69,7 @@ Jacob Deaton :)
 Jason Stephens 🤘
 Hayley Truong 🌸
 Angela Koval
+Hope Matthews <3
 Akshat Patel :P 
 Max (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧
 Cohen Velazquez
