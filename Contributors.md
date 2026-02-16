@@ -36,6 +36,7 @@ Sabri Abounozha ^_^
 Jason Tang
 Reid Singleton ~~~~~
 Ahmed Thalij
+Ha Lee
 Tom Eaton :^)
 Michael Caballero ><(((º>
 Alex Walsh :)
