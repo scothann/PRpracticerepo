@@ -69,6 +69,7 @@ Kelly Ballinger
 Zack Schaffter 🥪
 Lilith Abrahamson 🐷
 William Erickson ↯
+Adrian Borrego
 Jacob Deaton :)
 Jason Stephens 🤘
 Hayley Truong 🌸
