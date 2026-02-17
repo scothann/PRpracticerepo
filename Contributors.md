@@ -1,3 +1,5 @@
+Hann Scott (•̀ᴗ•́)و
+Phannawich Jadpotwanich (Boss) :/
 Aden Badua
 Tony Nguyen
 Quan Doan
