@@ -41,6 +41,7 @@ Ha Lee
 Tom Eaton :^)
 Michael Caballero ><(((º>
 Alex Walsh :)
+Felipe Osuna 🏗️
 Lukas Martinek 🏍️
 Mithun Karthikeyan 👋
 Calvin Chen :D
