@@ -1,5 +1,6 @@
 Aden Badua
 Tony Nguyen
+Quan Doan
 Hunter Anderson ¯\_(ツ)_/¯
 Chrystyan Pulido
 Finlay Christ 🧗
