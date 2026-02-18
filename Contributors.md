@@ -51,6 +51,7 @@ Joshua Dykstra
 Felipe Osuna 🏗️
 Lukas Martinek 🏍️
 Mithun Karthikeyan 👋
+Shuyao Zeng 🐣
 Calvin Chen :D
 John Cira :>
 Gurveer Singh 👻
