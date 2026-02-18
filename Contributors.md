@@ -69,6 +69,7 @@ Meredith 😎 Baker
 Gabriel-Jean Bertrand :/ 
 ERiC Kwak
 Annmarie Geiger o(˶^▾^˶ )o
+Talat Ali 😄
 Justin 🪂 Holley  
 Caleb Cardin ¯\\_(ツ)_/¯
 Colin Sonnenberg ツ
