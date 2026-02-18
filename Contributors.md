@@ -81,6 +81,7 @@ Jacob Deaton :)
 Jason Stephens 🤘
 Hayley Truong 🌸
 Angela Koval
+Kyle Adkerson 😎
 Jahmel Phillips
 Sonny Box 🐧
 Tony Miglets
