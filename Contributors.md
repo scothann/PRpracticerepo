@@ -82,6 +82,7 @@ Jacob Deaton :)
 Jason Stephens 🤘
 Hayley Truong 🌸
 Angela Koval
+Jay Froment-Rudder (◕‿◕)
 K Jensen
 Nick Beaird
 Zhicheng Huang
