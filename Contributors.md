@@ -18,6 +18,7 @@ Jamie Bartels 🍮
 Paula Tica
 Tyler Krueger
 Takafumi Suzuki(^-^)
+Kiana Shim
 KV
 RV (╯°□°)╯︵ ┻━┻
 Amelia Launtz
