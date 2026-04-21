@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
 Leif Grove,
-Akaash Bella ^_^
 Aidan Daly :)
+Nicholas Nguyen,
+Akaash Bella ^_^
