@@ -1,3 +1,6 @@
 Hann Scott (•̀ᴗ•́)و
 Leif Grove,
-Akaash Bella ^_^Jalen Scales 🚀
+Jalen Scales 🚀
+Aidan Daly :)
+Nicholas Nguyen,
+Akaash Bella ^_^
