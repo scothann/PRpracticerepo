@@ -4,4 +4,5 @@ Nathan Johnston シ,
 Jalen Scales 🚀
 Aidan Daly :)
 Nicholas Nguyen,
-Akaash Bella ^_^
+Akaash Bella ^_^,
+Gianno Mari Rodriguez ²▓▓Ba™an
