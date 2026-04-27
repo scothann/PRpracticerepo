@@ -4,6 +4,7 @@ Nathan Johnston シ,
 Jalen Scales 🚀
 Bhaveesh Beemireddy :)
 Aidan Daly :)
+Adison Daggett :),
 Sean Miller ~.~
 Nicholas Nguyen,
 Akaash Bella ^_^
