@@ -4,4 +4,5 @@ Nathan Johnston シ,
 Jalen Scales 🚀
 Aidan Daly :)
 Nicholas Nguyen,
+Fern Higgins (ᐛ)  
 Akaash Bella ^_^
