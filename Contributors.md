@@ -8,6 +8,7 @@ Aidan Daly :)
 Adison Daggett :),
 Sean Miller ~.~
 Nicholas Nguyen,
+Fern Higgins (ᐛ)  
 Gianno Mari Rodriguez ²▓▓Ba™an
 Bailey Bounnam,
 Akaash Bella ^_^
