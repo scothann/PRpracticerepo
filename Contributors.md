@@ -6,11 +6,14 @@ Meiling Miller :p
 Bhaveesh Beemireddy :)
 Aidan Daly :)
 Adison Daggett :),
-Sean Miller ~.~
+Sean Miller \~.\~
 Nicholas Nguyen,
 Fern Higgins (ᐛ)  
 Gianno Mari Rodriguez ²▓▓Ba™an
 Bailey Bounnam,
-Akaash Bella ^_^
+Akaash Bella ^*^
 Arvin Mirtorabi
-Luke Miller ¯\_(ツ)_/¯
+Luke Miller ¯\_(ツ)*/¯
+
+Seth Baker :)
+
