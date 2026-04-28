@@ -4,4 +4,7 @@ Nathan Johnston シ,
 Jalen Scales 🚀
 Aidan Daly :)
 Nicholas Nguyen,
-Akaash Bella ^_^
+Akaash Bella ^\_^
+
+Michael Valderrama :)
+
