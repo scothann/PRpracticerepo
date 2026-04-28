@@ -14,3 +14,4 @@ Bailey Bounnam,
 Akaash Bella ^_^
 Arvin Mirtorabi
 Luke Miller ¯\_(ツ)_/¯
+Kevin Lin <(^__^<)
