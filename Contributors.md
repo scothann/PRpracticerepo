@@ -13,7 +13,6 @@ Gianno Mari Rodriguez ²▓▓Ba™an
 Bailey Bounnam,
 Akaash Bella ^*^
 Arvin Mirtorabi
-Luke Miller ¯\_(ツ)*/¯
-
 Seth Baker :)
-
+Luke Miller ¯\_(ツ)_/¯
+Kevin Lin <(^__^<)
