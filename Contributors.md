@@ -2,6 +2,7 @@ Hann Scott (•̀ᴗ•́)و
 Leif Grove,
 Nathan Johnston シ,
 Jalen Scales 🚀
+Ethan Clinick >_>
 Meiling Miller :p
 Bhaveesh Beemireddy :)
 Aidan Daly :)
