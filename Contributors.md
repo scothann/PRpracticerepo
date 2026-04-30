@@ -7,6 +7,8 @@ Bhaveesh Beemireddy :)
 Aidan Daly :)
 Adison Daggett :),
 Sean Miller \~.\~
+
+Olivia Choi (•‿•)
 Nicholas Nguyen,
 Xichun Xu
 Fern Higgins (ᐛ)
