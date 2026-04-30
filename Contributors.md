@@ -5,6 +5,7 @@ Jalen Scales 🚀
 Meiling Miller :p
 Bhaveesh Beemireddy :)
 Aidan Daly :)
+Tsung-Hsi Tsai O_O
 Adison Daggett :),
 Sean Miller \~.\~
 Nicholas Nguyen,
