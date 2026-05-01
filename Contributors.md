@@ -9,6 +9,7 @@ Adison Daggett :),
 Sean Miller \~.\~
 Nicholas Nguyen,
 Xichun Xu
+Jessi Frenzel 🌌
 Fern Higgins (ᐛ)
 Gianno Mari Rodriguez ²▓▓Ba™an
 Bailey Bounnam,
