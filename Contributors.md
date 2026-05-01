@@ -8,6 +8,7 @@ Aidan Daly :)
 Adison Daggett :),
 Sean Miller \~.\~
 Nicholas Nguyen,
+Nicholas Reise ᕕ(⌐■_■)ᕗ ♪♬
 Xichun Xu
 Fern Higgins (ᐛ)
 Gianno Mari Rodriguez ²▓▓Ba™an
