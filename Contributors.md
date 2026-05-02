@@ -3,6 +3,7 @@ Leif Grove,
 Nathan Johnston シ,
 Jalen Scales 🚀
 Meiling Miller :p
+Tyler Knudson (╯°□°）╯︵ ┻━┻
 Bhaveesh Beemireddy :)
 Aidan Daly :)
 Adison Daggett :),
