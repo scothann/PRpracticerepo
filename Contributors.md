@@ -1,4 +1,4 @@
-Hann Scott (•̀ᴗ•́)و
+SopHann Scott (•̀ᴗ•́)و
 Leif Grove,
 Nathan Johnston シ,
 Jalen Scales 🚀
@@ -12,11 +12,14 @@ Xichun Xu
 Fern Higgins (ᐛ)
 Gianno Mari Rodriguez ²▓▓Ba™an
 Bailey Bounnam,
-Akaash Bella ^*^
+Akaash Bella ^\*^
 Arvin Mirtorabi
 Liam McAfee :o
 Seth Baker :)
-Luke Miller ¯\_(ツ)_/¯
-Lora Edens 🎾 
+Luke Miller ¯\_(ツ)\_/¯
+Lora Edens 🎾
 Savhanna Beene @}->--
-Kevin Lin <(^__^<)
+Kevin Lin <(^\_\_^<)
+
+Sophavid Choum-Starkey(:<)|(^\*^)
+
