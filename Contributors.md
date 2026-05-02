@@ -19,4 +19,5 @@ Seth Baker :)
 Luke Miller ¯\_(ツ)_/¯
 Lora Edens 🎾 
 Savhanna Beene @}->--
+Nathan Spoerle
 Kevin Lin <(^__^<)
