@@ -13,6 +13,7 @@ Fern Higgins (ᐛ)
 Gianno Mari Rodriguez ²▓▓Ba™an
 Bailey Bounnam,
 Akaash Bella ^*^
+Chris Mosier (•‿•)
 Arvin Mirtorabi
 Liam McAfee :o
 Seth Baker :)
@@ -20,3 +21,4 @@ Luke Miller ¯\_(ツ)_/¯
 Lora Edens 🎾 
 Savhanna Beene @}->--
 Kevin Lin <(^__^<)
+
