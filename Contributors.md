@@ -10,6 +10,7 @@ Sean Miller \~.\~
 Nicholas Nguyen,
 Xichun Xu
 Fern Higgins (ᐛ)
+Claudia COlom :)
 Gianno Mari Rodriguez ²▓▓Ba™an
 Bailey Bounnam,
 Akaash Bella ^*^
