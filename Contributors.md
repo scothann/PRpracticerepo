@@ -11,6 +11,7 @@ Nicholas Nguyen,
 Xichun Xu
 Fern Higgins (ᐛ)
 Gianno Mari Rodriguez ²▓▓Ba™an
+Julian Ramirez :)
 Bailey Bounnam,
 Akaash Bella ^*^
 Arvin Mirtorabi
