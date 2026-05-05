@@ -9,6 +9,7 @@ Adison Daggett :),
 Sean Miller \~.\~
 Nicholas Nguyen,
 Xichun Xu
+Matthew Staples
 Fern Higgins (ᐛ)
 Gianno Mari Rodriguez ²▓▓Ba™an
 Bailey Bounnam,
@@ -17,6 +18,6 @@ Arvin Mirtorabi
 Liam McAfee :o
 Seth Baker :)
 Luke Miller ¯\_(ツ)_/¯
-Lora Edens 🎾 
+Lora Edens 🎾
 Savhanna Beene @}->--
 Kevin Lin <(^__^<)
