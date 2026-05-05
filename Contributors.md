@@ -8,6 +8,7 @@ Aidan Daly :)
 Adison Daggett :),
 Sean Miller \~.\~
 Nicholas Nguyen,
+Michael Valderrama :)
 Xichun Xu
 Fern Higgins (ᐛ)
 Gianno Mari Rodriguez ²▓▓Ba™an
@@ -21,3 +22,4 @@ Lora Edens 🎾
 Savhanna Beene @}->--
 Courtlen Olmo
 Kevin Lin <(^__^<)
+Aiden McDonald (*^▽^*)
