@@ -10,6 +10,7 @@ Sean Miller \~.\~
 Nicholas Nguyen,
 Michael Valderrama :)
 Xichun Xu
+Alexander Adams (ง'̀-'́)ง
 Fern Higgins (ᐛ)
 Gianno Mari Rodriguez ²▓▓Ba™an
 Bailey Bounnam,
