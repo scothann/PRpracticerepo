@@ -8,6 +8,7 @@ Aidan Daly :)
 Adison Daggett :),
 Sean Miller \~.\~
 Nicholas Nguyen,
+Michael Valderrama :)
 Xichun Xu
 Alexander Adams (ง'̀-'́)ง
 Fern Higgins (ᐛ)
@@ -20,4 +21,6 @@ Seth Baker :)
 Luke Miller ¯\_(ツ)_/¯
 Lora Edens 🎾 
 Savhanna Beene @}->--
+Courtlen Olmo
 Kevin Lin <(^__^<)
+Aiden McDonald (*^▽^*)
