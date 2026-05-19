@@ -1,14 +1,22 @@
 Hann Scott (•̀ᴗ•́)و
 Leif Grove,
+AngelisK h,
 Nathan Johnston シ,
 Jalen Scales 🚀
+Ethan Clinick >_>
 Meiling Miller :p
 Bhaveesh Beemireddy :)
 Aidan Daly :)
+Tsung-Hsi Tsai O_O
 Adison Daggett :),
+Siddharth Singh 🦖,
 Sean Miller \~.\~
+Olivia Choi (•‿•)
 Nicholas Nguyen,
+Michael Valderrama :)
 Xichun Xu
+Courtney Barrick :D
+Alexander Adams (ง'̀-'́)ง
 Fern Higgins (ᐛ)
 Gianno Mari Rodriguez ²▓▓Ba™an
 Bailey Bounnam,
@@ -19,5 +27,12 @@ Seth Baker :)
 Luke Miller ¯\_(ツ)_/¯
 Lora Edens 🎾 
 Savhanna Beene @}->--
+Courtlen Olmo
 Kevin Lin <(^__^<)
 Kia Wilson :)
+Michael Graves
+Auberon Orbock
+Abigail-Lueze Yahn ˙ᵕ˙
+Lapatrada Liawpairoj :-;
+Logan Anderson
+Aiden McDonald (*^▽^*)
