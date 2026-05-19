@@ -7,6 +7,7 @@ Ethan Clinick >_>
 Meiling Miller :p
 Bhaveesh Beemireddy :)
 Aidan Daly :)
+Tsung-Hsi Tsai O_O
 Adison Daggett :),
 Siddharth Singh 🦖,
 Sean Miller \~.\~
