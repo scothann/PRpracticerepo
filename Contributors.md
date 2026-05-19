@@ -13,6 +13,7 @@ Siddharth Singh 🦖,
 Sean Miller \~.\~
 Olivia Choi (•‿•)
 Nicholas Nguyen,
+Aiden Murphy (╯°□°)╯︵ ┻━┻ ,
 Makenna Bodenhamer <3
 Michael Valderrama :)
 Xichun Xu
