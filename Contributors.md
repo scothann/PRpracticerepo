@@ -18,6 +18,7 @@ Aiden Murphy (╯°□°)╯︵ ┻━┻ ,
 Makenna Bodenhamer <3
 Michael Valderrama :)
 Xichun Xu
+Ohm Thakor :)
 Courtney Barrick :D
 Alexander Adams (ง'̀-'́)ง
 Fern Higgins (ᐛ)
