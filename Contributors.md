@@ -6,6 +6,7 @@ Meiling Miller :p
 Bhaveesh Beemireddy :)
 Aidan Daly :)
 Adison Daggett :),
+Siddharth Singh 🦖,
 Sean Miller \~.\~
 Nicholas Nguyen,
 Michael Valderrama :)
