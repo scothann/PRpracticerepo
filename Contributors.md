@@ -15,6 +15,7 @@ Olivia Choi (•‿•)
 Nicholas Nguyen,
 Michael Valderrama :)
 Xichun Xu
+Courtney Barrick :D
 Alexander Adams (ง'̀-'́)ง
 Fern Higgins (ᐛ)
 Gianno Mari Rodriguez ²▓▓Ba™an
