@@ -36,6 +36,7 @@ Savhanna Beene @}->--
 Ranson Touch :P 
 Courtlen Olmo
 Kevin Lin <(^__^<)
+John Kinkade :>8{}8<:
 Zach Benedetti :0
 Anil Verman :^)-<
 Alyce Harlan 🌊
