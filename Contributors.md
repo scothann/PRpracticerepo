@@ -13,6 +13,7 @@ Siddharth Singh 🦖,
 Sean Miller \~.\~
 Olivia Choi (•‿•)
 Nicholas Nguyen,
+Gage Davelaar <(o,o)>
 Nicholas Reise ᕕ(⌐■_■)ᕗ ♪♬
 Aiden Murphy (╯°□°)╯︵ ┻━┻ ,
 Makenna Bodenhamer <3
