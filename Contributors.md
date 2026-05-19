@@ -11,6 +11,7 @@ Tsung-Hsi Tsai O_O
 Adison Daggett :),
 Siddharth Singh 🦖,
 Sean Miller \~.\~
+Olivia Choi (•‿•)
 Nicholas Nguyen,
 Michael Valderrama :)
 Xichun Xu
