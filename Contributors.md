@@ -25,10 +25,11 @@ Arvin Mirtorabi
 Liam McAfee :o
 Seth Baker :)
 Luke Miller ¯\_(ツ)_/¯
-Lora Edens 🎾 
+Lora Edens 🎾
 Savhanna Beene @}->--
 Courtlen Olmo
 Kevin Lin <(^__^<)
+Maritza Devicente Hambric ฅ^•ﻌ•^ฅ
 Humza Hussain 🏀
 Kia Wilson :)
 Michael Graves
