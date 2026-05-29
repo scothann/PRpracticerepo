@@ -42,6 +42,7 @@ Mina Go (>^__^)>
 Ranson Touch :P 
 Courtlen Olmo
 Kevin Lin <(^__^<)
+Logan Miller
 Gabriel McVean :^)
 Keona Abad :0
 Andrew Taylor 🐧
