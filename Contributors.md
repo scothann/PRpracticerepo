@@ -42,6 +42,7 @@ Mina Go (>^__^)>
 Ranson Touch :P 
 Courtlen Olmo
 Kevin Lin <(^__^<)
+Trent Scoggins :  ^  )
 Zane Garvey 🦍
 Logan Miller
 Gabriel McVean :^)
