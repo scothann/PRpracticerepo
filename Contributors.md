@@ -26,7 +26,8 @@ Fern Higgins (ᐛ)
 Ethan Ossana
 Gianno Mari Rodriguez ²▓▓Ba™an
 Bailey Bounnam,
-Akaash Bella ^*^
+Akaash Bella ^\*^
+Ahmad Lodhi
 Arvin Mirtorabi
 Ethan Mark 
 Zachary Adkins
