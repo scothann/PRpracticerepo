@@ -47,9 +47,7 @@ Mina Go (>^__^)>
 Ranson Touch :P 
 Courtlen Olmo
 Kevin Lin <(^__^<)
-<<<<<<< add-alvin-li
 Alvin Li
-=======
 Kyle Fuller :)
 Finlay Curtiss <|:3c
 Anh Tran :p
@@ -74,4 +72,3 @@ Abigail-Lueze Yahn ˙ᵕ˙
 Lapatrada Liawpairoj :-;
 Logan Anderson
 Aiden McDonald (*^▽^*)
->>>>>>> main
