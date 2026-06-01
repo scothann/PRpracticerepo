@@ -43,6 +43,7 @@ Mina Go (>^__^)>
 Ranson Touch :P 
 Courtlen Olmo
 Kevin Lin <(^__^<)
+Berenice Rubalcaba :3
 Jeffrey Sparrow 雀
 Trent Scoggins :  ^  )
 Zane Garvey 🦍
