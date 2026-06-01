@@ -39,6 +39,7 @@ Seth Baker :)
 Luke Miller ¯\_(ツ)_/¯
 Lora Edens 🎾
 Savhanna Beene @}->--
+Nathan Spoerle
 Mina Go (>^__^)>
 Ranson Touch :P 
 Courtlen Olmo
