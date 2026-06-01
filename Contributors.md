@@ -46,6 +46,7 @@ Mina Go (>^__^)>
 Ranson Touch :P 
 Courtlen Olmo
 Kevin Lin <(^__^<)
+Finlay Curtiss <|:3c
 Anh Tran :p
 Berenice Rubalcaba :3
 Jeffrey Sparrow 雀
