@@ -2,6 +2,7 @@ Hann Scott (•̀ᴗ•́)و
 Leif Grove,
 AngelisK h,
 Nathan Johnston シ,
+Roman Depyak 
 Jalen Scales 🚀
 Dylan Keyhantaj ★,
 Ethan Clinick >_>
