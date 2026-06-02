@@ -54,6 +54,7 @@ Mina Go (>^__^)>
 Ranson Touch :P 
 Courtlen Olmo
 Kevin Lin <(^__^<)
+Ian Hale :|
 Avery Smith B)
 Nathen dela Torre
 Daniel Haddad (>^.^)><(^.^<)
