@@ -29,6 +29,7 @@ Ohm Thakor :)
 Courtney Barrick :D
 Alexander Adams (ง'̀-'́)ง
 Fern Higgins (ᐛ)
+Claudia COlom :)
 Ethan Ossana
 Gianno Mari Rodriguez ²▓▓Ba™an
 Bailey Bounnam,
