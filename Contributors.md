@@ -7,6 +7,7 @@ Jalen Scales 🚀
 Dylan Keyhantaj ★,
 Ethan Clinick >_>
 Meiling Miller :p
+Tyler Knudson (╯°□°）╯︵ ┻━┻
 Bhaveesh Beemireddy :)
 Aidan Daly :)
 Tsung-Hsi Tsai O_O
