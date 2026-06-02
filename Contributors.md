@@ -53,6 +53,7 @@ Mina Go (>^__^)>
 Ranson Touch :P 
 Courtlen Olmo
 Kevin Lin <(^__^<)
+Daniel Haddad (>^.^)><(^.^<)
 Ryan Countryman (╯°□°)╯ ┻━┻
 Jessica Foley '\(*w*)/'
 Francisco martinez ( ͡° ͜ʖ ͡°)
