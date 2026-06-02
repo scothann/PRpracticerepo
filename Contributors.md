@@ -52,6 +52,7 @@ Mina Go (>^__^)>
 Ranson Touch :P 
 Courtlen Olmo
 Kevin Lin <(^__^<)
+Jessica Foley '\(*w*)/'
 Francisco martinez ( ͡° ͜ʖ ͡°)
 Travis Kuenzi
 Ayush Singh
