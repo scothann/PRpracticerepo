@@ -54,6 +54,7 @@ Mina Go (>^__^)>
 Ranson Touch :P 
 Courtlen Olmo
 Kevin Lin <(^__^<)
+Nathen dela Torre
 Daniel Haddad (>^.^)><(^.^<)
 Ryan Countryman (╯°□°)╯ ┻━┻
 Jessica Foley '\(*w*)/'
