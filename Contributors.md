@@ -34,7 +34,8 @@ Claudia COlom :)
 Ethan Ossana
 Gianno Mari Rodriguez ²▓▓Ba™an
 Bailey Bounnam,
-Akaash Bella ^\*^
+Akaash Bella ^*^
+Chris Mosier (•‿•)
 Ahmad Lodhi
 Arvin Mirtorabi
 Christina Morris
