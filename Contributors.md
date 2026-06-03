@@ -55,6 +55,7 @@ Mina Go (>^__^)>
 Ranson Touch :P 
 Courtlen Olmo
 Kevin Lin <(^__^<)
+Reif Stanfield ___/<^>\___
 Ian Hale :|
 Avery Smith B)
 Nathen dela Torre
