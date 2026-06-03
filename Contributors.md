@@ -22,6 +22,7 @@ Aiden Murphy (╯°□°)╯︵ ┻━┻ ,
 Makenna Bodenhamer <3
 Michael Valderrama :)
 Xichun Xu
+Colin Maurier
 Aaron Takemoto xp
 Colin Totten :O
 Jessi Frenzel 🌌
