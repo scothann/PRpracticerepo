@@ -46,7 +46,8 @@ Liam McAfee :o
 Seth Baker :)
 Sophavid Choum-Starkey(:<)|(^\*^)
 Garrett McMillan ----{,_,">
-Luke Miller ¯\_(ツ)_/¯
+Luke Miller ¯\_(ツ)_/¯ 
+Javier Hernandez 🥭
 Lora Edens 🎾
 Savhanna Beene @}->--
 Leo Marchyok
