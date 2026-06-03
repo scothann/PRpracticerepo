@@ -34,6 +34,7 @@ Fern Higgins (ᐛ)
 Claudia COlom :)
 Ethan Ossana
 Gianno Mari Rodriguez ²▓▓Ba™an
+Paxton Freeman
 Bailey Bounnam,
 Akaash Bella ^*^
 Chris Mosier (•‿•)
