@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Julie Dovu
 Reynaud Hunter
 Akaash Bella ^*^
 Cameron Brooks d[-_-]b
