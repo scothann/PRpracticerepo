@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Reynaud Hunter
 Akaash Bella ^*^
 Aimee Wong ฅ(^•ﻌ•^ฅ)
 Stephen Stanwood =^.^=
