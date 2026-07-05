@@ -2,6 +2,7 @@ Hann Scott (•̀ᴗ•́)و
 Julie Dovu
 Reynaud Hunter
 Akaash Bella ^*^
+Stephan Demmers >>>
 Cameron Brooks d[-_-]b
 Tom Cocker (ㆆ_ㆆ)
 Aimee Wong ฅ(^•ﻌ•^ฅ)
