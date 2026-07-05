@@ -1,5 +1,6 @@
 Hann Scott (•̀ᴗ•́)و
 Julie Dovu
+Brandon Smith ૮₍ • ᴥ • ₎ა
 Reynaud Hunter
 Akaash Bella ^*^
 Cameron Brooks d[-_-]b
