@@ -14,6 +14,7 @@ Hossain Nahid
 Sean Brady 0.0
 GT ._.
 Zachary Landry
+Miranda Friesen
 Tom Haney ( ┛◉Д◉)┛ 彡┻━┻
 Nathan Puckett :D
 Allison Langlois ᓚᘏᗢ
