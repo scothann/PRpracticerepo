@@ -1,9 +1,10 @@
 Hann Scott (•̀ᴗ•́)و
 Julie Dovu
 Reynaud Hunter
-Akaash Bella ^\*^
-Cameron Brooks d\[-*-]b
-Tom Cocker (ㆆ\_ㆆ)
+Akaash Bella ^*^
+Stephan Demmers >>>
+Cameron Brooks d[-_-]b
+Tom Cocker (ㆆ_ㆆ)
 Aimee Wong ฅ(^•ﻌ•^ฅ)
 Stephen Stanwood =^.^=
 Sean Bleyl >*<
