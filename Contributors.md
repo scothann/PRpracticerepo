@@ -5,17 +5,20 @@ Reynaud Hunter
 Matthew Smith
 Akaash Bella ^*^
 Stephan Demmers >>>
-Cameron Brooks d[-_-]b
-Tom Cocker (ㆆ_ㆆ)
+Cameron Brooks d\[-\_-]b
+Tom Cocker (ㆆ\_ㆆ)*
+
+*Jack Perkins <(^.^)>
 Aimee Wong ฅ(^•ﻌ•^ฅ)
 Stephen Stanwood =^.^=
 Sean Bleyl >*<
 Avril Dickinson /ᐠ - ˕ -マ
 Hossain Nahid
 Sean Brady 0.0
-GT ._.
+GT .\_.
 Zachary Landry
 Tom Haney ( ┛◉Д◉)┛ 彡┻━┻
 Nathan Puckett :D
 Allison Langlois ᓚᘏᗢ
 Mei Tate 三三ᕕ( ⌓̈ )ᕗ
+
