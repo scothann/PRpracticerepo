@@ -9,6 +9,7 @@ Tom Cocker (ㆆ_ㆆ)
 Aimee Wong ฅ(^•ﻌ•^ฅ)
 Stephen Stanwood =^.^=
 Sean Bleyl >*<
+Alexander Addis :O
 Avril Dickinson /ᐠ - ˕ -マ
 Hossain Nahid
 Sean Brady 0.0
