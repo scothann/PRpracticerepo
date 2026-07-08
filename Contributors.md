@@ -18,4 +18,5 @@ Zachary Landry
 Tom Haney ( ┛◉Д◉)┛ 彡┻━┻
 Nathan Puckett :D
 Allison Langlois ᓚᘏᗢ
+Carlos Alvarado ಥ ͜ʖ ͡ಥ
 Mei Tate 三三ᕕ( ⌓̈ )ᕗ
