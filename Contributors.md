@@ -11,6 +11,7 @@ Aimee Wong ฅ(^•ﻌ•^ฅ)
 Stephen Stanwood =^.^=
 Sean Bleyl >*<
 Avril Dickinson /ᐠ - ˕ -マ
+Daniel Molina (._.)
 Hossain Nahid
 Sean Brady 0.0
 GT ._.
