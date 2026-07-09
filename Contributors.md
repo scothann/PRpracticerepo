@@ -6,6 +6,7 @@ Matthew Smith
 Akaash Bella ^*^
 Stephan Demmers >>>
 Cameron Brooks d[-_-]b
+Thomas Thelen-Clemmons ₍^. .^₎⟆ 
 Tom Cocker (ㆆ_ㆆ)
 Aimee Wong ฅ(^•ﻌ•^ฅ)
 Stephen Stanwood =^.^=
