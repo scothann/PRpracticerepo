@@ -28,6 +28,7 @@ Zachary Landry
 Miranda Friesen
 Tom Haney ( ┛◉Д◉)┛ 彡┻━┻
 Nathan Puckett :D
+Lon Danna ⚾️
 Allison Langlois ᓚᘏᗢ
 Bryden Takayam :p
 Mei Tate 三三ᕕ( ⌓̈ )ᕗ
