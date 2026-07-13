@@ -10,6 +10,7 @@ Tom Cocker (ㆆ\_ㆆ)
 Thayer Marvin [o.O]
 Thane Thompson 💡 ==> 🚀 ==> ✨
 Aimee Wong ฅ(^•ﻌ•^ฅ)
+Hannah Kemplin (ツ)
 Stephen Stanwood =^.^=*
 *Wenhan Zhao (QAQ)
 Sean Bleyl >*<
