@@ -5,12 +5,13 @@ Reynaud Hunter
 Matthew Smith
 Akaash Bella ^*^
 Stephan Demmers >>>
-Cameron Brooks d[-_-]b
-Tom Cocker (ㆆ_ㆆ)
+Cameron Brooks d\[-\_-]b
+Tom Cocker (ㆆ\_ㆆ)
 Thayer Marvin [o.O]
 Thane Thompson 💡 ==> 🚀 ==> ✨
 Aimee Wong ฅ(^•ﻌ•^ฅ)
-Stephen Stanwood =^.^=
+Stephen Stanwood =^.^=*
+*Wenhan Zhao (QAQ)
 Sean Bleyl >*<
 Avril Dickinson /ᐠ - ˕ -マ
 Hossain Nahid
