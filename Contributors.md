@@ -29,6 +29,7 @@ Miranda Friesen
 Tom Haney ( ┛◉Д◉)┛ 彡┻━┻
 Nathan Puckett :D
 Allison Langlois ᓚᘏᗢ
+Bryden Takayam :p
 Mei Tate 三三ᕕ( ⌓̈ )ᕗ
 Shrey Bosamia
 Dillon Stickler 	(づ｡◕‿‿◕｡)づ
