@@ -22,6 +22,7 @@ Chase Mackenzie o/ -_-
 Nathan Dan (づ｡◕‿‿◕｡)づ
 GT ._.
 Zachary Landry
+Miranda Friesen
 Tom Haney ( ┛◉Д◉)┛ 彡┻━┻
 Nathan Puckett :D
 Allison Langlois ᓚᘏᗢ
