@@ -11,7 +11,8 @@ Thayer Marvin [o.O]
 Thane Thompson 💡 ==> 🚀 ==> ✨
 Aimee Wong ฅ(^•ﻌ•^ฅ)
 Hannah Kemplin (ツ)
-Stephen Stanwood =^.^=*
+Stephen Stanwood =^.^=
+Jesús García |π|
 *Wenhan Zhao (QAQ)
 Sean Bleyl >*<
 Alexander Addis :O
