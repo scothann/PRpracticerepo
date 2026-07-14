@@ -7,6 +7,7 @@ Akaash Bella ^*^
 Stephan Demmers >>>
 Cameron Brooks d\[-\_-]b
 Tom Cocker (ㆆ\_ㆆ)
+*Jack Perkins <(^.^)>
 Thayer Marvin [o.O]
 Thane Thompson 💡 ==> 🚀 ==> ✨
 Aimee Wong ฅ(^•ﻌ•^ฅ)
