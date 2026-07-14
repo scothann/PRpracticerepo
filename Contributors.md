@@ -36,6 +36,7 @@ Lon Danna ⚾️
 Allison Langlois ᓚᘏᗢ
 Bryden Takayam :p
 Mei Tate 三三ᕕ( ⌓̈ )ᕗ
+Derek Och
 Trevor Smith :3
 Shrey Bosamia
 Dillon Stickler 	(づ｡◕‿‿◕｡)づ
