@@ -13,6 +13,7 @@ Thane Thompson 💡 ==> 🚀 ==> ✨
 Aimee Wong ฅ(^•ﻌ•^ฅ)
 Hannah Kemplin (ツ)
 Stephen Stanwood =^.^=
+Desmond Delaney
 Jesús García |π|
 *Wenhan Zhao (QAQ)
 Sean Bleyl >*<
