@@ -42,6 +42,7 @@ Tom Haney ( ┛◉Д◉)┛ 彡┻━┻
 Nathan Puckett :D
 Lon Danna ⚾️
 Allison Langlois ᓚᘏᗢ
+Carlos Alvarado ಥ ͜ʖ ͡ಥ
 Mei Tate 三三ᕕ( ⌓̈ )ᕗ
 Jaime Garcia (zzzzzz||zzzzz)
 Mick Forsman (ᵔᴥᵔ)
