@@ -41,8 +41,9 @@ Tom Haney ( ┛◉Д◉)┛ 彡┻━┻
 Nathan Puckett :D
 Lon Danna ⚾️
 Allison Langlois ᓚᘏᗢ
+Mei Tate 三三ᕕ( ⌓̈ )ᕗ 
+Arthur Franklyn ^_^ 
 Bryden Takayam :p
-Mei Tate 三三ᕕ( ⌓̈ )ᕗ
 Graham Brown ♫♪.ılılıll|̲̅̅●̲̅̅|̲̅̅=̲̅̅|̲̅̅●̲̅̅|llılılı.♫♪
 Eric Danielsen :-)
 AJ :3
