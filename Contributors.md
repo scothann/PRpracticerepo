@@ -43,6 +43,7 @@ Nathan Puckett :D
 Lon Danna ⚾️
 Allison Langlois ᓚᘏᗢ
 Mei Tate 三三ᕕ( ⌓̈ )ᕗ
+Zach Bull ._.
 Christian DeVore
 Arthur Franklyn ^_^ 
 Bryden Takayam :p
