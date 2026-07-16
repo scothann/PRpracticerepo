@@ -45,6 +45,7 @@ Lon Danna ⚾️
 Allison Langlois ᓚᘏᗢ
 Carlos Alvarado ಥ ͜ʖ ͡ಥ
 Mei Tate 三三ᕕ( ⌓̈ )ᕗ
+Gerardo Lugo <(^,^)>
 Jaime Garcia (zzzzzz||zzzzz)
 Mick Forsman (ᵔᴥᵔ)
 Joris Bolsens
