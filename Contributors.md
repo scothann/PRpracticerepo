@@ -3,6 +3,7 @@ Julie Dovu
 Brandon Smith ૮₍ • ᴥ • ₎ა
 Reynaud Hunter
 Matthew Smith
+Adrian Ortiz Lafita
 Akaash Bella ^*^
 Stephan Demmers >>>
 Cameron Brooks d\[-\_-]b
