@@ -7,6 +7,7 @@ Adrian Ortiz Lafita
 Akaash Bella ^*^
 Keona Abad :)
 Stephan Demmers >>>
+Thomas Thelen-Clemmons ₍^. .^₎⟆ 
 Cameron Brooks d\[-\_-]b
 Tom Cocker (ㆆ\_ㆆ)
 *Jack Perkins <(^.^)>
