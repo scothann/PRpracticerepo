@@ -47,6 +47,7 @@ Lon Danna ⚾️
 Allison Langlois ᓚᘏᗢ
 Carlos Alvarado ಥ ͜ʖ ͡ಥ
 Mei Tate 三三ᕕ( ⌓̈ )ᕗ
+Taurean Newsome (-_-)
 Chua Meng Ern Jerome
 Nathan Murphy ^_^
 Gerardo Lugo <(^,^)>
