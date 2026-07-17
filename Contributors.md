@@ -51,6 +51,7 @@ Allison Langlois ᓚᘏᗢ
 Cody Strehlow -@-@-
 Carlos Alvarado ಥ ͜ʖ ͡ಥ
 Mei Tate 三三ᕕ( ⌓̈ )ᕗ
+Felipe Reyes Murcia 
 Amin Hussien
 Callum Pickard (^_^)
 Kabir Vidyarthi ~=[,,_,,]:3
