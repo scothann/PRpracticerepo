@@ -51,6 +51,7 @@ Allison Langlois ᓚᘏᗢ
 Cody Strehlow -@-@-
 Carlos Alvarado ಥ ͜ʖ ͡ಥ
 Mei Tate 三三ᕕ( ⌓̈ )ᕗ
+Jonathan Salfen 0ㆆ.ㆆ0
 Felipe Reyes Murcia 
 Amin Hussien
 Callum Pickard (^_^)
