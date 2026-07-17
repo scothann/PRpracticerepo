@@ -14,6 +14,7 @@ Tom Cocker (ㆆ\_ㆆ)
 Thayer Marvin [o.O]
 Thane Thompson 💡 ==> 🚀 ==> ✨
 Aimee Wong ฅ(^•ﻌ•^ฅ)
+Gideon Kennedy-Johnson
 Hannah Kemplin (ツ)
 Stephen Stanwood =^.^=
 Besher Al Maleh \o/
