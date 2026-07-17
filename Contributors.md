@@ -22,6 +22,7 @@ Jesús García |π|
 Sean Bleyl >*<
 Alexander Addis :O
 Avril Dickinson /ᐠ - ˕ -マ
+Daniel Molina (._.)
 Hossain Nahid
 JE
 Alejandro Cervantes Flores
