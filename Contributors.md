@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Eman Alturky 
 Amit Lad
 Minako Koike ^•ﻌ•^
 Ava Callais ᓚᘏᗢ
