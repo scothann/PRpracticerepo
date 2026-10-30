@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Jason Hudson
 Eman Alturky 
 Amit Lad
 Minako Koike ^•ﻌ•^
