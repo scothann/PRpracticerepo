@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Minako Koike ^•ﻌ•^
 Ava Callais ᓚᘏᗢ
 Lev Protas <3
 Celia Babbs :)
