@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Jason Pierce d[-_-]b
 Tanner Becker <(^.^)>
 Greg Preiss (*^‿^*)
 Derin Beker
