@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Jordan Cowan ⋆｡ ﾟ ☁︎｡ ⋆｡ ﾟ ☾ ﾟ ｡ ⋆
 Jack Mustonen 
 Jason Pierce d[-_-]b
 Tanner Becker <(^.^)>
