@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Kevin Frias ＜（＾－＾）＞
 Maddox Nehls (⌐■_■)
 Jordan Cowan ⋆｡ ﾟ ☁︎｡ ⋆｡ ﾟ ☾ ﾟ ｡ ⋆
 Jack Mustonen 
