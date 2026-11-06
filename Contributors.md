@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Joseph Taylor <:3 )~~~
 Tetsuya Bassler ヾ(-\_- )ゞ
 Kevin Moy (:O)
 Anna Ryplewski ✩₊˚.⋆☾⋆⁺₊✧,
