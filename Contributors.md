@@ -38,6 +38,7 @@ Matthew Kwon ( ͡° ͜ʖ ͡°)
 Austin Albrecht ( ͡° ͜ʖ ͡°)
 Nathan Carrillo O﹏o
 Aidan Beery 【= ❙ 𖥦 ❙ =】
+Jonathan Jackson <("<) <('.')> (>")>
 Sarah Tetterton (._.)
 Nicholas Cox (╯°□°)╯︵ ┻━┻
 
