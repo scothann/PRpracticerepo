@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Ellie Frost \\[T]/
 Matthew Chang ₍^. .^₎
 Braden Goodfellow
 Aliyah S 
