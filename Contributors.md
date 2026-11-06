@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Finn Shepherd xD
 Olivia Cruz (cO.o)c
 Olivia Fidler ૮ ˆﻌˆ ა
 Daanish Khan
@@ -34,3 +35,4 @@ Matthew Kwon ( ͡° ͜ʖ ͡°)
 Austin Albrecht ( ͡° ͜ʖ ͡°)
 Nathan Carrillo O﹏o
 Aidan Beery 【= ❙ 𖥦 ❙ =】
+
