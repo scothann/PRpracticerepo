@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Braden Goodfellow
 Aliyah S 
 Finn Shepherd xD
 Olivia Cruz (cO.o)c
