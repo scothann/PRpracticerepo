@@ -46,6 +46,7 @@ Matthew Kwon ( ͡° ͜ʖ ͡°)
 Austin Albrecht ( ͡° ͜ʖ ͡°)
 Nathan Carrillo O﹏o
 Aidan Beery 【= ❙ 𖥦 ❙ =】
+Ricardo Porras (¯\_(ツ)_/¯)
 Ashen Pageau \[T]/
 Jonathan Jackson <("<) <('.')> (>")>
 Sarah Tetterton (._.)
