@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Kerissa Grubb ⚞^. .^⚟
 Kelcie Sirois (=^.^=)
 Carson Secrest :)
 Rory G B-)
@@ -51,4 +52,3 @@ Ashen Pageau \[T]/
 Jonathan Jackson <("<) <('.')> (>")>
 Sarah Tetterton (._.)
 Nicholas Cox (╯°□°)╯︵ ┻━┻
-
