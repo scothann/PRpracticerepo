@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Kristian Guevarra ^_^
 Long Pham
 Ellie Frost \\[T]/
 Matthew Chang ₍^. .^₎
