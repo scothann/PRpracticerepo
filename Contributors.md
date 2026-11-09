@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Alexis Collins (ಠ_ಠ)و
 Charles Caldwell (⌐■_■)
 Kristian Guevarra ^_^
 Long Pham
