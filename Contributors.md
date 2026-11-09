@@ -1,4 +1,5 @@
 Hann Scott (•̀ᴗ•́)و
+Rory G B-)
 Alexis Collins (ಠ_ಠ)و
 Charles Caldwell (⌐■_■)
 Kristian Guevarra ^_^
