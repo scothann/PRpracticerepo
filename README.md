@@ -57,7 +57,9 @@ git switch -c add-alonzo-church
 
 ## Make necessary changes and commit those changes
 
-Now open `Contributors.md` file in a text editor, add your name to it. You may also add a (polite) emoticon or ascii art, if desired. Don't add to the beginning or end of the file. Put it anywhere in between. Now, save the file.
+Now open `Contributors.md` file in a text editor, add your name to it. You may also add a (polite) emoticon or ascii art, if desired. Do not add to the beginning (first line) or end (last line) of the file; put it anywhere in between. (In other words, your name should not be the first in the list or the last; there should be at least one name before yours and at least one after.)
+
+Now, save the file.
 
 <img align="right" width="450" src="https://firstcontributions.github.io/assets/Readme/git-status.png" alt="git status" />
 
