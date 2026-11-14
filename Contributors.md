@@ -1,3 +1,3 @@
 Hann Scott (•̀ᴗ•́)
-Nikoloz Shashkiniو
+Nikoloz Shashkini :)و
 Aidan Beery 【= ❙ 𖥦 ❙ =】
